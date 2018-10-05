@@ -11,8 +11,10 @@ Horace
 1. Good Will Hunting
 1. Coherence
 1. American Psycho
+1. Contagion
 1. Lost in Translation
-1. There Will Be Blood
+1. There Will Be Blood (unfinished)
+1. Under The Skin (unfinished)
 
 Zbobo :P
 
@@ -26,6 +28,8 @@ Zbobo :P
 1. Good Will Hunting
 1. The Departed
 1. American Psycho
+1. Contagion
 1. Drive
-1. There Will Be Blood
+1. There Will Be Blood (unfinished)
+1. Under The Skin (unfinished)
 
