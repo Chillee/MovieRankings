@@ -9,6 +9,7 @@ Horace
 1. The Departed
 1. Cloud Atlas
 1. Good Will Hunting
+1. Scott Pilgrim Vs The World
 1. Coherence
 1. American Psycho
 1. Contagion
@@ -29,7 +30,8 @@ Zbobo :P
 1. The Departed
 1. American Psycho
 1. Contagion
-1. Drive
+1. Scott Pilgram v. The World
 1. There Will Be Blood (unfinished)
-1. Under The Skin (unfinished)
+1. Drive
+1. Under The Skin (unfinished) - This movie suuuuuuuuuucked!
 
