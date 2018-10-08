@@ -37,6 +37,17 @@ Zbobo :P
 1. Drive
 1. Under The Skin (unfinished) - This movie suuuuuuuuuucked!
 
+Kevin
+1. Harry Met Sally
+1. Good Will Hunting
+1. Silence of the Lambs
+1. Coherence
+1. Primer
+1. Scott Pilgram v. The World
+1. American Psycho
+1. Children of Men
+1. Drive
+
 Zaibo Queue
 1. The Good the Bad and the Ugly
 2. Mad Max Fury Road
