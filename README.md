@@ -1,6 +1,6 @@
 # Movie Rankings (Fall 2018)
-## Horace
 
+## Horace
 1. Silence of the Lambs
 1. Harry Met Sally
 1. Children of Men
@@ -64,5 +64,4 @@
 
 Zaibo Queue
 1. The Good the Bad and the Ugly
-2. Mad Max Fury Road
-3. Do The Right Thing
+1. Do The Right Thing
