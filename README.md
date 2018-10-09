@@ -6,6 +6,7 @@
 1. Children of Men
 1. Drive
 1. Synecdoche NY
+1. Mad Max: Fury Read (rewatch)
 1. The Departed
 1. Cloud Atlas
 1. Good Will Hunting
@@ -39,6 +40,7 @@
 1. American Psycho
 1. Contagion
 1. Scott Pilgram v. The World
+1. Mad Max: Fury Road
 1. Limitless
 ----
 ### F tier - did not enjoy <4/10
@@ -56,6 +58,9 @@
 1. American Psycho
 1. Children of Men
 1. Drive
+1. Mad Max: Fury Road
+1. Limitless
+1. Under The Skin (unfinished)
 
 Zaibo Queue
 1. The Good the Bad and the Ugly
