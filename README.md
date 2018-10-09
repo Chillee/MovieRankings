@@ -6,7 +6,7 @@
 1. Children of Men
 1. Drive
 1. Synecdoche NY
-1. Mad Max: Fury Read (rewatch)
+1. Mad Max: Fury Road (rewatch)
 1. The Departed
 1. Cloud Atlas
 1. Good Will Hunting
