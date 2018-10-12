@@ -1,12 +1,12 @@
 # Movie Rankings (Fall 2018)
-## Horace
 
+## Horace
 1. Silence of the Lambs
 1. Harry Met Sally
 1. Children of Men
 1. Drive
 1. Synecdoche NY
-1. Mad Max: Fury Read (rewatch)
+1. Mad Max: Fury Road (rewatch)
 1. The Departed
 1. Cloud Atlas
 1. Good Will Hunting
@@ -65,5 +65,4 @@
 
 Zaibo Queue
 1. The Good the Bad and the Ugly
-2. Mad Max Fury Road
-3. Do The Right Thing
+1. Do The Right Thing
