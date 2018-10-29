@@ -44,7 +44,7 @@
 1. The Thing (1982)
 1. American Psycho
 1. Contagion
-1. Scott Pilgram v. The World
+1. Scott Pilgrim v. The World
 1. Mad Max: Fury Road
 1. Limitless
 ----
