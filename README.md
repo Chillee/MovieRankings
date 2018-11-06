@@ -46,7 +46,9 @@
 1. Contagion
 1. Scott Pilgrim v. The World
 1. Mad Max: Fury Road
+1. The Fountain - Cool visuals and good soundtrack, but otherwise a budget Cloud Atlas
 1. Limitless
+1. Taxi Driver - Ending ?????? -> okay
 ----
 ### F tier - did not enjoy <4/10
 1. Annie Hall
