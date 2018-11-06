@@ -10,12 +10,14 @@
 1. Mad Max: Fury Road (rewatch)
 1. The Departed
 1. Cloud Atlas
+1. Taxi Driver
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
 1. Coherence
 1. Primer
 1. American Psycho
 1. Contagion
+1. The Fountain
 1. Lost in Translation
 1. Limitless
 1. Annie Hall (unfinished)
