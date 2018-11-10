@@ -5,6 +5,7 @@
 1. Harry Met Sally
 1. Children of Men
 1. Drive
+1. The Good the Bad and the Ugly
 1. Synecdoche NY
 1. The Thing
 1. Mad Max: Fury Road (rewatch)
@@ -49,6 +50,7 @@
 1. Scott Pilgrim v. The World
 1. Mad Max: Fury Road
 1. The Fountain - Cool visuals and good soundtrack, but otherwise a budget Cloud Atlas
+1. The Good the Bad and the Ugly - So long, not good
 1. Limitless
 1. Taxi Driver - Ending ?????? -> okay
 ----
@@ -73,5 +75,4 @@
 1. Under The Skin (unfinished)
 
 Zaibo Queue
-1. The Good the Bad and the Ugly
 1. Do The Right Thing
