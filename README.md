@@ -14,6 +14,7 @@
 1. Taxi Driver
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
+1. The King's Speech
 1. Coherence
 1. Primer
 1. American Psycho
@@ -43,6 +44,7 @@
 1. Devil Wears Prada (rewatch)
 ----
 ### C tier - OK Movies 5-7/10
+1. The King's Speech
 1. Primer
 1. The Thing (1982)
 1. American Psycho
