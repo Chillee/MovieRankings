@@ -5,6 +5,7 @@
 1. Harry Met Sally
 1. Children of Men
 1. Drive
+1. The Fighter
 1. The Good the Bad and the Ugly
 1. Synecdoche NY
 1. The Thing
@@ -30,6 +31,7 @@
 
 ### S tier - Best 10/10
 1. When Harry Met Sally
+1. The Fighter - A slow start
 1. Cloud Atlas
 1. About Time - This will certainly be a bold ranking. Movie is like a mix of When Harry Met Sally and Cloud Atlas for me. Just like Cloud Atlas, it's an ambitious film which gives you a feeling which is hard to describe.
 ----
