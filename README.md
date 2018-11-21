@@ -57,6 +57,7 @@
 1. The Good the Bad and the Ugly - So long, not good
 1. Limitless
 1. Taxi Driver - Ending ?????? -> okay
+1. Circle - this was barely worth watching
 ----
 ### F tier - did not enjoy <4/10
 1. Annie Hall
