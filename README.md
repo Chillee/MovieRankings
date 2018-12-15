@@ -39,6 +39,7 @@
 ### A tier - Really good 8-9/10
 1. Silence of the Lambs
 1. Children of Men
+1. In Bruges - Feel like there were two reasons to make this film: to insult Belgium for 1.5 hours and (SPOILER) the scene where Ken is trying to kill Ray who is killing himself
 1. Coherence
 1. Synecdoche NY
 1. Lost in Translation
