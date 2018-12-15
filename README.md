@@ -5,6 +5,7 @@
 1. Harry Met Sally
 1. Children of Men
 1. Drive
+1. In Bruges
 1. The Fighter
 1. The Good the Bad and the Ugly
 1. Synecdoche NY
