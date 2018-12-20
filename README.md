@@ -62,6 +62,7 @@
 1. Scott Pilgrim v. The World
 1. Mad Max: Fury Road
 1. The Fountain - Cool visuals and good soundtrack, but otherwise a budget Cloud Atlas
+1. Crazy, Stupid, Love
 1. The Good the Bad and the Ugly - So long, not good
 1. Limitless
 1. Taxi Driver - Ending ?????? -> okay
