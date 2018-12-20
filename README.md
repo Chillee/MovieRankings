@@ -8,6 +8,7 @@
 1. In Bruges
 1. The Fighter
 1. The Good the Bad and the Ugly
+1. Memento
 1. Synecdoche NY
 1. The Thing
 1. Mad Max: Fury Road (rewatch)
@@ -16,11 +17,14 @@
 1. Taxi Driver
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
+1. The Truman Show
 1. The King's Speech
 1. Coherence
 1. Primer
+1. Now You See Me
 1. No Country For Old Men
 1. American Psycho
+1. Tucker and Dale vs. Evil
 1. Contagion
 1. The Fountain
 1. Lost in Translation
