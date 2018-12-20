@@ -21,9 +21,9 @@
 1. The King's Speech
 1. Coherence
 1. Primer
-1. Now You See Me
 1. No Country For Old Men
 1. American Psycho
+1. Now You See Me
 1. Tucker and Dale vs. Evil
 1. Contagion
 1. The Fountain
