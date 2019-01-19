@@ -2,7 +2,7 @@
 
 ## Horace
 1. Silence of the Lambs
-1. Harry Met Sally
+1. When Harry Met Sally
 1. Children of Men
 1. Drive
 1. In Bruges
@@ -13,8 +13,10 @@
 1. The Thing
 1. Mad Max: Fury Road (rewatch)
 1. The Departed
+1. Interstellar
 1. Cloud Atlas
 1. Taxi Driver
+1. Se7en
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
 1. The Truman Show
@@ -23,6 +25,7 @@
 1. Primer
 1. No Country For Old Men
 1. American Psycho
+1. Zombieland
 1. Now You See Me
 1. Tucker and Dale vs. Evil
 1. Contagion
