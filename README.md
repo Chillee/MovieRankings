@@ -11,12 +11,13 @@
 1. Memento
 1. Synecdoche NY
 1. The Thing
+1. Interstellar
 1. Mad Max: Fury Road (rewatch)
 1. The Departed
-1. Interstellar
+1. Se7en
 1. Cloud Atlas
 1. Taxi Driver
-1. Se7en
+
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
 1. The Truman Show
