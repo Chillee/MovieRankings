@@ -9,6 +9,7 @@
 1. The Fighter
 1. The Good the Bad and the Ugly
 1. Memento
+1. Eternal Sunshine of the Spotter Mind
 1. Synecdoche NY
 1. The Thing
 1. Interstellar
