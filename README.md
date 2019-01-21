@@ -13,6 +13,7 @@
 1. Synecdoche NY
 1. The Thing
 1. Interstellar
+1. Shawshank Redemption
 1. Mad Max: Fury Road (rewatch)
 1. The Departed
 1. Se7en
