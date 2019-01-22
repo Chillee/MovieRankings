@@ -51,6 +51,7 @@
 1. Primer
 1. No Country For Old Men
 1. American Psycho
+1. Forrest Gump
 1. Zombieland
 1. Now You See Me
 1. Tucker and Dale vs. Evil
@@ -78,7 +79,7 @@
 1. Limitless
 1. Under The Skin (unfinished)
 
-Zaibo Queue
+Horace Queue
 
 1. Do The Right Thing
 1. Kill Bill
