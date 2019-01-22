@@ -19,10 +19,10 @@
 1. Se7en
 1. Cloud Atlas
 1. Taxi Driver
-
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
 1. The Truman Show
+1. Dr. Strangelove
 1. The King's Speech
 1. Coherence
 1. Primer
