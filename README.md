@@ -29,6 +29,7 @@
 1. Primer
 1. No Country For Old Men
 1. American Psycho
+1. Forrest Gump
 1. Zombieland
 1. Now You See Me
 1. Tucker and Dale vs. Evil
