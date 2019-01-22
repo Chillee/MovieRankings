@@ -1,5 +1,27 @@
 # Movie Rankings (Fall 2018)
 
+## Zbobo :P
+
+## Spring 2019
+
+### S tier - Best 10/10
+
+---
+
+### A tier - Really good 8-9/10
+
+1. Schindler's List - 8.5/10. Feel like I matured a bit since my first watching a couple years ago. The score and Itzhak was really well done.
+
+---
+
+### C tier - OK Movies 5-7/10
+
+1. A Star is Born - 7/10. I watched this movie for the plot, so I actually skipped all the scenes where they scene, even the last one, (except for Shallow). I'm glad he died at the end, made sense.
+
+---
+
+### F tier - did not enjoy <4/10
+
 ## Horace
 
 1. Silence of the Lambs
@@ -40,33 +62,6 @@
 1. There Will Be Blood (unfinished)
 1. The Imitation Game
 1. Under The Skin (unfinished)
-
-## Zbobo :P
-
-## Spring 2019
-
-### S tier - Best 10/10
-
----
-
-### A tier - Really good 8-9/10
-
-1. Schindler's List - 8.5/10. Feel like I matured a bit since my first watching a couple years ago. The score and Itzhak was really well done.
-
----
-
-### C tier - OK Movies 5-7/10
-
-1. A Star is Born - 7/10. I watched this movie for the plot, so I actually skipped all the scenes where they scene, even the last one, (except for Shallow). I'm glad he died at the end, made sense.
-
----
-
-### F tier - did not enjoy <4/10
-
-## Winter
-
-1. Avengers, Infinity War - 7/10 Exactly the movie I expected. Was much more enjoyable watching on Netflix because I could skip through scenes that I found boring. Otherwise, this would be a 5/10
-1. The Lobster - 8.5/10 Very interesting idea, dialogue was super unsettling. Great directing to make such a creepy tone. A surprisingly good movie.
 
 ## Kevin
 
