@@ -30,7 +30,7 @@
 1. Drive
 1. In Bruges
 1. The Fighter
-1. The Good the Bad and the Ugly
+1. The Good the Bad and the Ugly (rewatch)
 1. Memento
 1. Eternal Sunshine of the Spotted Mind
 1. Synecdoche NY
