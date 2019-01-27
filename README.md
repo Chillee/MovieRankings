@@ -1,4 +1,4 @@
-# Movie Rankings (Fall 2018)
+# Movie Rankings (Fall 2018 - Spring 2019)
 
 ## Zbobo :P
 
