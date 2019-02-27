@@ -36,15 +36,15 @@
 1. In Bruges
 1. The Fighter
 1. The Good the Bad and the Ugly (rewatch)
-1. Memento
-1. Eternal Sunshine of the Spotted Mind: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot compared to Synecdoche NY. Compared to other films, the onn 
+1. Memento: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception. 
+1. Eternal Sunshine of the Spotted Mind: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of what it means to lose memories and what it costs is brilliant.
 1. Synecdoche NY: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
 1. The Thing: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a whole new dimension to the film
-1. Interstellar: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina" that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list.
+1. Interstellar: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina"(much worse than the beginning) that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list.
 1. Shawshank Redemption
 1. Mad Max: Fury Road (rewatch): When I first watched this movie I thought it was the "perfect" film - as in, no action film could surpass this. I still believe the action set pieces in this film are near perfection ("Witness me!"), and the action scenes do encompass more character development/world building than some give credit for. But on a second watch of the film, when the glamour starts to become overwhelming, the novelty fading (no new "tribes"), the second half of the film (ie: the return) starts to drag. All my favorite moments were in the first half, but they were memorable enough to land this movie here on my list.
 1. The Departed
-1. Se7en
+1. Se7en: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
 1. Cloud Atlas
 1. Pulp Fiction
 1. Taxi Driver
@@ -59,12 +59,12 @@
 1. No Country For Old Men
 1. American Psycho
 1. The Wandering Earth: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for. 
+1. The Fountain: In some sense, I was put off by this film in the same way that I'm put off by propaganda films. It's definitely a very spiritual film with some great moments, but I think I'm currently incompatible with its fundamental message. I just moved this movie from below Contagion to below The Wandering Earth, as I think the great moments (especially loved the tree of life/present day arcs) in this movie should be given credit. Definitely a candidate for "movie that might grow on me over the years".
 1. Forrest Gump
 1. Zombieland
 1. Now You See Me
 1. Tucker and Dale vs. Evil
 1. Contagion
-1. The Fountain
 1. Lost in Translation
 1. Limitless
 1. Annie Hall (unfinished)
