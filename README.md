@@ -37,15 +37,16 @@
 1. The Fighter
 1. The Good the Bad and the Ugly (rewatch)
 1. Memento
-1. Eternal Sunshine of the Spotted Mind
-1. Synecdoche NY
-1. The Thing
-1. Interstellar
+1. Eternal Sunshine of the Spotted Mind: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot compared to Synecdoche NY. Compared to other films, the onn 
+1. Synecdoche NY: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
+1. The Thing: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a whole new dimension to the film
+1. Interstellar: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina" that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list.
 1. Shawshank Redemption
-1. Mad Max: Fury Road (rewatch)
+1. Mad Max: Fury Road (rewatch): When I first watched this movie I thought it was the "perfect" film - as in, no action film could surpass this. I still believe the action set pieces in this film are near perfection ("Witness me!"), and the action scenes do encompass more character development/world building than some give credit for. But on a second watch of the film, when the glamour starts to become overwhelming, the novelty fading (no new "tribes"), the second half of the film (ie: the return) starts to drag. All my favorite moments were in the first half, but they were memorable enough to land this movie here on my list.
 1. The Departed
 1. Se7en
 1. Cloud Atlas
+1. Pulp Fiction
 1. Taxi Driver
 1. Scott Pilgrim Vs The World
 1. Good Will Hunting
@@ -57,7 +58,7 @@
 1. Primer
 1. No Country For Old Men
 1. American Psycho
-1. The Wandering Earth (watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience)
+1. The Wandering Earth: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for. 
 1. Forrest Gump
 1. Zombieland
 1. Now You See Me
