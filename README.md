@@ -85,7 +85,7 @@
 1. Limitless
 1. Under The Skin (unfinished)
 
-Horace Queue
+Queue
 
 1. Do The Right Thing
 1. Kill Bill
@@ -95,4 +95,5 @@ Horace Queue
 1. Tree of Life
 1. Akira
 1. Hero
+1. Dallas Buyer's Club
 
