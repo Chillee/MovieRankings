@@ -57,6 +57,7 @@
 1. Primer
 1. No Country For Old Men
 1. American Psycho
+1. The Wandering Earth (watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience)
 1. Forrest Gump
 1. Zombieland
 1. Now You See Me
