@@ -56,7 +56,7 @@
 1. **The King's Speech**
 1. **Coherence**
 1. **Primer**
-1. **No Country For Old Men**
+1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
 1. **The Wandering Earth**: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for. 
 1. **The Fountain**: In some sense, I was put off by this film in the same way that I'm put off by propaganda films. It's definitely a very spiritual film with some great moments, but I think I'm currently incompatible with its fundamental message. I just moved this movie from below Contagion to below The Wandering Earth, as I think the great moments (especially loved the tree of life/present day arcs) in this movie should be given credit. Definitely a candidate for "movie that might grow on me over the years".
