@@ -96,7 +96,6 @@ Queue
 1. Kill Bill
 1. A Few Good Men
 1. Full Metal Jacket
-1. Baby Driver
 1. Tree of Life
 1. Akira
 1. Dallas Buyer's Club
