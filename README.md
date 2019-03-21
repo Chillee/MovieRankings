@@ -53,6 +53,7 @@
 1. **Scott Pilgrim Vs The World**
 1. **Good Will Hunting**
 1. **The Truman Show**
+1. **Do The Right Thing**
 1. **Dr. Strangelove**
 1. **Dunkirk**
 1. **The King's Speech**
