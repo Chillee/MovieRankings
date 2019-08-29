@@ -28,6 +28,7 @@ There were a lot of 7's this summer. These movies were good, enjoyable, but not 
 ---
 
 ### F tier - did not enjoy <4/10
+1. The Lion King - 4/10. I'm not a huge fan of this movie in the first place and the live action remake was even worse. The characters don't show any emotion through their faces and animals talking in english is weirder when they look realistic. Kid Simba was cocky and annoying. Adolescent Simba was totally nihilistic and still annoying. The animation was pretty cool, looked like animal planet. Yeah, I also just find the story stupid, not really inspiring. 
 
 
 ## Spring 2019
@@ -54,7 +55,6 @@ There were a lot of 7's this summer. These movies were good, enjoyable, but not 
 ---
 
 ### F tier - did not enjoy <4/10
-1. The Lion King - 4/10. I'm not a huge fan of this movie in the first place and the live action remake was even worse. The characters don't show any emotion through their faces and animals talking in english is weirder when they look realistic. Kid Simba was cocky and annoying. Adolescent Simba was totally nihilistic and still annoying. The animation was pretty cool, looked like animal planet. Yeah, I also just find the story stupid, not really inspiring. 
 
 ## Horace
 
@@ -127,7 +127,7 @@ Queue
 1. Kill Bill
 1. A Few Good Men
 1. Full Metal Jacket
-1. Tree of Life
+1. Tree of Life (Horace never did and never will finish this movie lol)
 1. Akira
-1. Dallas Buyer's Club
+1. Dallas Buyer's Club (Zaibo watched this solo :'( )
 
