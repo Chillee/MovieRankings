@@ -47,6 +47,7 @@ There were a lot of 7's this summer. These movies were good, enjoyable, but not 
 ### C tier - OK Movies 5-7/10
 
 1. A Star is Born - 7/10. I watched this movie for the plot, so I actually skipped all the scenes where they scene, even the last one, (except for Shallow). I'm glad he died at the end, made sense.
+1. Detective Pikachu - 7?/10. Love seening Pokemon, but didn't add this so I forgot a lot of the movie.
 1. Moneyball - 6.9/10. I will watch every single movie made from a Michael Lewis book. I also think I enjoy sport movies. I did not like the scenes of the GM and his daughter.
 1. The Wandering Earth - 5.5/10. Ambitious movie and I like end of the world movies which is why it's this high. However, I don't like the changing of plans. Feels Deus Ex Machina
 1. Dunkirk - 5.5/10. 5 means the movie was barely enjoyable and that's how I felt about this film. Generally, don't like war movies. The beginning of the movie is very slow.
