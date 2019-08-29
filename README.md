@@ -9,6 +9,7 @@
 ---
 
 ### A tier - Really good 8-9/10
+Chernonyl - 8/10. Not a movie but deserves an honorable mention because it's the best thing I watched this summer.
 Spiderman: Far From Home - 7.5/10. This movie far exceeded my expectations and part of the reason for the high rating is because the theater made the experience much better. I liked the meta comments about super heros, the world building of the post Iron Man death world. The fight sequence that ends with Spiderman being hit by the train was one of the coolest I've seen, I love when everything goes quiet. In general, Spiderman has to be my favorite action movie franchise. I like that Spiderman fights with some strategy since he is not the strongest being.
 
 ---
