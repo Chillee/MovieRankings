@@ -1,6 +1,8 @@
-# Movie Rankings (Fall 2018 - Spring 2019)
+# Movie Rankings (Fall 2018 - Fall 2019)
 
 ## Zbobo :P
+
+## Fall 2019
 
 ## Summer 2019
 
@@ -9,23 +11,26 @@
 ---
 
 ### A tier - Really good 8-9/10
-Spiderman: Far From Home - 7.5/10. This movie far exceeded my expectations and part of the reason for the high rating is because the theater made the experience much better. I liked the meta comments about super heros, the world building of the post Iron Man death world. The fight sequence that ends with Spiderman being hit by the train was one of the coolest I've seen, I love when everything goes quiet. In general, Spiderman has to be my favorite action movie franchise. I like that Spiderman fights with some strategy since he is not the strongest being.
+1. Chernonyl - 8/10. Not a movie but deserves an honorable mention because it's the best thing I watched this summer.
+1. Spiderman: Far From Home - 7.5/10. This movie far exceeded my expectations and part of the reason for the high rating is because the theater made the experience much better. I liked the meta comments about super heros, the world building of the post Iron Man death world. The fight sequence that ends with Spiderman being hit by the train was one of the coolest I've seen, I love when everything goes quiet. In general, Spiderman has to be my favorite action movie franchise. I like that Spiderman fights with some strategy since he is not the strongest being.
 
 ---
 
 ### C tier - OK Movies 5-7/10
-There were a lot of 7's this summer. These movies were good, enjoyable, but not amazing.
-The Tree of Life - 7.1/10. Watched about half of this movie with Horace before we went to sleep. I guess it's an ambitious film, but honestly it's really confusing. The premise is simple enough - an adult reflecting on his memories to figure out why he is who he is. I didn't understand that until reading explainations of the film. A lot of confusing sequences (the Big Bang up until dinosaurs etc.) Ending of the movie was meh. Brad Pitt did a nice job as a stern father and they built up his character well. I did like how they depicted the life of a surburban kid's upbringing, it does remind me of mine, and I recognize that that is hard to do.
-Toy Story 4 - 7/10. I watched the first Toy Story, and probably the 2nd and 3rd although I don't remember. It was okay. I made a joke about organ harvesting when Woody went into that creepy shop, and it turned out that's actually what happened. I don't like how in kids movies, the bad guy turns good. Bo Peep is so awesome. I love competence.
-Annie Hall - 7/10. I saw this the first time after watching two other movies that day. Horace and I ended up stopping halfway. I was inspired to watch this movie because I saw a video about 500 Days of Summer and this movie was mentioned as the rom-com of its generation. Through that lense, the movie was a lot more interesting. I watched this at 1.5x. Overall, a bit more appreciation for the film but nothing spectacular.
-Aladdin - 7/10. Exceeded my expectations. I liked the songs (Speechless was hilarious in the movie but I like the song, Prince Ali, Friend Like Me). The plot in the beginning with the lamp was rushed.
-Ghost in the Shell - 7/10. I watched this movie sped up as well. I didn't completely understand the politics going on between the different sectors and that might be because of the speed. I thought there were some interesting philosophical questions. 
-Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but the plot moved so slowly. Margot Robbie barely did anything and had almost no dialogue. Leaving the theater, my rating was a lot lower, but after looking at the reviews, I understood the movie better: the Manson family + murders, Margot Robbie had a great performance. The ending was pretty fun to watch and Brad Pitt's character was soooo badass.
+There were a lot of 7's this summer. These movies were good, enjoyable, but not amazing.  
+
+1. The Tree of Life - 7.1/10. Watched about half of this movie with Horace before we went to sleep. I guess it's an ambitious film, but honestly it's really confusing. The premise is simple enough - an adult reflecting on his memories to figure out why he is who he is. I didn't understand that until reading explainations of the film. A lot of confusing sequences (the Big Bang up until dinosaurs etc.) Ending of the movie was meh. Brad Pitt did a nice job as a stern father and they built up his character well. I did like how they depicted the life of a surburban kid's upbringing, it does remind me of mine, and I recognize that that is hard to do.  
+1. Toy Story 4 - 7/10. I watched the first Toy Story, and probably the 2nd and 3rd although I don't remember. It was okay. I made a joke about organ harvesting when Woody went into that creepy shop, and it turned out that's actually what happened. I don't like how in kids movies, the bad guy turns good. Bo Peep is so awesome. I love competence.  
+1. Annie Hall - 7/10. I saw this the first time after watching two other movies that day. Horace and I ended up stopping halfway. I was inspired to watch this movie because I saw a video about 500 Days of Summer and this movie was mentioned as the rom-com of its generation. Through that lense, the movie was a lot more interesting. I watched this at 1.5x. Overall, a bit more appreciation for the film but nothing spectacular.  
+1. Aladdin - 7/10. Exceeded my expectations. I liked the songs (Speechless was hilarious in the movie but I like the song, Prince Ali, Friend Like Me). The plot in the beginning with the lamp was rushed.  
+1. Ghost in the Shell - 7/10. I watched this movie sped up as well. I didn't completely understand the politics going on between the different sectors and that might be because of the speed. I thought there were some interesting philosophical questions.  
+1. Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but the plot moved so slowly. Margot Robbie barely did anything and had almost no dialogue. Leaving the theater, my rating was a lot lower, but after looking at the reviews, I understood the movie better: the Manson family + murders, Margot Robbie had a great performance. The ending was pretty fun to watch and Brad Pitt's character was soooo badass.  
 
 
 ---
 
 ### F tier - did not enjoy <4/10
+1. The Lion King - 4/10. I'm not a huge fan of this movie in the first place and the live action remake was even worse. The characters don't show any emotion through their faces and animals talking in english is weirder when they look realistic. Kid Simba was cocky and annoying. Adolescent Simba was totally nihilistic and still annoying. The animation was pretty cool, looked like animal planet. Yeah, I also just find the story stupid, not really inspiring. 
 
 
 ## Spring 2019
@@ -44,6 +49,7 @@ Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but th
 ### C tier - OK Movies 5-7/10
 
 1. A Star is Born - 7/10. I watched this movie for the plot, so I actually skipped all the scenes where they scene, even the last one, (except for Shallow). I'm glad he died at the end, made sense.
+1. Detective Pikachu - 7?/10. Love seening Pokemon, but didn't add this so I forgot a lot of the movie.
 1. Moneyball - 6.9/10. I will watch every single movie made from a Michael Lewis book. I also think I enjoy sport movies. I did not like the scenes of the GM and his daughter.
 1. The Wandering Earth - 5.5/10. Ambitious movie and I like end of the world movies which is why it's this high. However, I don't like the changing of plans. Feels Deus Ex Machina
 1. Dunkirk - 5.5/10. 5 means the movie was barely enjoyable and that's how I felt about this film. Generally, don't like war movies. The beginning of the movie is very slow.
@@ -52,8 +58,6 @@ Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but th
 ---
 
 ### F tier - did not enjoy <4/10
-1. The Lion King - 4/10. I'm not a huge fan of this movie in the first place and the live action remake was even worse. The characters don't show any emotion through their faces and animals talking in english is weirder when they look realistic. Kid Simba was cocky and annoying. Adolescent Simba was totally nihilistic and still annoying. The animation was pretty cool, looked like animal planet. Yeah, I also just find the story stupid, not really inspiring. 
-
 ## Horace
 
 1. **Silence of the Lambs**
@@ -79,7 +83,9 @@ Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but th
 1. **Pulp Fiction**
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
+1. **Once Upon a Time in Hollywood**
 1. **Good Will Hunting**
+1. **Spider Man: Far From Home**  
 1. **The Truman Show**
 1. **Do The Right Thing**
 1. **Dr. Strangelove**
@@ -89,6 +95,7 @@ Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but th
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
+1. **Aladdin**
 1. **The Wandering Earth**: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for. 
 1. **The Fountain**: In some sense, I was put off by this film in the same way that I'm put off by propaganda films. It's definitely a very spiritual film with some great moments, but I think I'm currently incompatible with its fundamental message. I just moved this movie's ranking from below Contagion to below The Wandering Earth, as I think the great moments (especially loved the tree of life/present day arcs) in this movie should be given credit. Definitely a candidate for "movie that might grow on me over the years".
 1. **Lost in Translation**: This movie has three scenes that really stood out to me, two positively and one negatively. The karaoke scene, Charlotte looking back, and the prostitute scene. I wanted to like this movie - I really like the metaphor (maybe thanks to Kanye...), but the alienation of the Japanese jarred me in this movie. The prostitute scene in particular was incredibly uncomfortable to watch. I understand that it's necessary for the main dynamic between the leading characters, and that these scenes arguably furthered the dynamic. I just wish that it wasn't necessary to play into every Japanese stereotype to do so.
@@ -98,7 +105,8 @@ Once Upon a Time in Hollywood - 7/10. So much anticipation for this movie but th
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie. 
 1. **How To Train Your Dragon 3**: Eh. 1 >> 2 >> 3. My main issue with this film is that the villain seemed tacked on. The villains in 1 had a clear purpose, as well as the one in 2. This movie seemed to just meander around, and the villain never really seemed present throughout the movie. I learned after the movie that the villain in this movie was not the original plan, that the original plan for 2 and 3 involved Hiccup's mother fighting him, and putting the villain from 2 in the 3rd movie. This movie just seemed like a step down in stakes. I did enjoy the ending though, I was surprised that they ended on a somewhat bittersweet note. Props to the movie for doing that. Interestingly, other than who I watched the movie with, nobody else was in the movie theater when I watched this. Strange experience.
 1. **Limitless**: Another guilty pleasure movie. In much the same way I enjoyed Now You See Me's omniscient villains, I enjoyed watching Eddie Morra outwit everyone else. This movie also deserves credit for popularizing the idea of nootropics. However, the movie shoots past my suspension of disbelief with how "smart" the character is. I get that writing characters that are smarter than you is hard, but Eddie gets essentially supernatural powers. I think I would really enjoy a scifi film that examined the societal effect of a mechanism that moderately increases human intelligence. Kinda like Gattaca, but extended towards brain-level effects.
-1. **Now You See Me**: Very much so a guilty pleasure movie. Terrible movie - I didn't care about any of the characters, the twist at the end seemed convoluted and a classic example of a bad twist. Feels like the writers wanted to make The Prestige, but worse. Still, I loved the prestige, and I tend to love magic movies and villains that seem omniscient, so I enjoyed watching the movie. Still a bad movie though.
+1. **Godzilla: King of the Monsters**: Phenomenal trailers (perhaps the best trailers I've ever seen), but they also put 90% of the great moments in it. The human characters were forgettable.
+1. **Now You See Me**: Very much so a guilty pleasure movie. Terrible movie - I didn't care about any of the characters, the twist at the end seemed convoluted and a classic example of a bad twist. Feels like the writers wanted to make The Prestige, but worse. Still, I loved the Prestige, and I tend to love magic movies and villains that seem omniscient, so I enjoyed watching the movie. Still a bad movie though.
 1. **Annie Hall (unfinished)**: Watched this film because I saw someone say that Harry Met Sally and Annie Hall are two rom coms for people who don't like rom coms. I loved Harry Met Sally, but didn't care for the characters in this movie. However, this was the 7th? movie I'd watched that day and I went to sleep right after, so I've been meaning to give this movie another shot.
 1. **There Will Be Blood (unfinished)**: I watched the first half, and I wasn't very engaged. I've heard some people mention that this movie is "80% drudgery made up with some phenomenal moments", so I want to finish this film at some point.
 1. **The Imitation Game**: The worst film I've watched in a long time. I just didn't care for any of the characters. The fact that this movie drastically departs from Turing's real story, pitting him against the government, the coworkers, a Russian spy, or basically anything that will characterize Turing even more as an isolated tortured genius doesn't help. I tend to have a soft spot for movies like this, but I found this movie unbelievably boring.
@@ -125,7 +133,7 @@ Queue
 1. Kill Bill
 1. A Few Good Men
 1. Full Metal Jacket
-1. Tree of Life
+1. Tree of Life (Horace never did and never will finish this movie lol)
 1. Akira
-1. Dallas Buyer's Club
+1. Dallas Buyer's Club (Zaibo watched this solo :'( )
 
