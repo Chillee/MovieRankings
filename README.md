@@ -44,6 +44,7 @@
 1. **Se7en**: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
 1. **Cloud Atlas** 
 1. **Pulp Fiction**
+1. **The Aviator**
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
