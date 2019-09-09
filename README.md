@@ -10,15 +10,18 @@
 
 ### A tier - Really good 8-9/10
 
+1. Brokeback Mountain - 8/10. This movie takes the cute scenes that are part of a normal romance movie and invents the gay equivalent. That was so well done. Gyllenhaal (Jack fucking Twist) has another great performance and I'm interested in watching more movies that he stars in. Was a shock when he died.
 1. The Aviator - 8/10. This movie felt like the precessor to "The Wolf of Wallstreet". I think three hour movies are usually pretty hard to sit through but Scorsese makes it work. Katherine Hepburn actor was fantastic, the [accent was very interesting](https://youtu.be/NvDvESEXcgE?t=680). Favorite lines in the movie were "hot dog" and "golly". Lots of memorable scenes - the lightbulbs crunching on the red carpet, Hughes' film projected onto his body, Hughes meets the Hepburns. Ben Wyatt and Galvin Belson have cameos in the movie.
 
 ---
 
 ### C tier - OK Movies 5-7/10
+1. A Few Good Men - 7/10. Part of the reason I watched this movie is 
 
 ---
 
 ### F tier - did not enjoy <4/10
+1. Unbreakable - 4/10. Hashes over and over how the man is unbreakable. The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case.
 
 ## Horace
 
