@@ -18,6 +18,8 @@
 ### C tier - OK Movies 5-7/10
 1. A Few Good Men - 7/10. Part of the reason I watched this movie is 
 
+1. Unbreakable - 5/10. Pacing was slow. They spent so much time convincing us that the main character was unbreakable. We GET IT. He is unbreakable!!! Twist was not exciting. Horace picked this movie and it suuuuuuuuuuuuuuucked. 
+
 ---
 
 ### F tier - did not enjoy <4/10
@@ -46,6 +48,7 @@
 1. **Se7en**: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
 1. **Cloud Atlas** 
 1. **Pulp Fiction**
+1. **The Aviator**
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
@@ -68,6 +71,7 @@
 1. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie. 
+1. **Unbreakable**
 1. **How To Train Your Dragon 3**: Eh. 1 >> 2 >> 3. My main issue with this film is that the villain seemed tacked on. The villains in 1 had a clear purpose, as well as the one in 2. This movie seemed to just meander around, and the villain never really seemed present throughout the movie. I learned after the movie that the villain in this movie was not the original plan, that the original plan for 2 and 3 involved Hiccup's mother fighting him, and putting the villain from 2 in the 3rd movie. This movie just seemed like a step down in stakes. I did enjoy the ending though, I was surprised that they ended on a somewhat bittersweet note. Props to the movie for doing that. Interestingly, other than who I watched the movie with, nobody else was in the movie theater when I watched this. Strange experience.
 1. **Limitless**: Another guilty pleasure movie. In much the same way I enjoyed Now You See Me's omniscient villains, I enjoyed watching Eddie Morra outwit everyone else. This movie also deserves credit for popularizing the idea of nootropics. However, the movie shoots past my suspension of disbelief with how "smart" the character is. I get that writing characters that are smarter than you is hard, but Eddie gets essentially supernatural powers. I think I would really enjoy a scifi film that examined the societal effect of a mechanism that moderately increases human intelligence. Kinda like Gattaca, but extended towards brain-level effects.
 1. **Godzilla: King of the Monsters**: Phenomenal trailers (perhaps the best trailers I've ever seen), but they also put 90% of the great moments in it. The human characters were forgettable.
@@ -83,6 +87,7 @@
 1. Harry Met Sally
 1. Good Will Hunting
 1. Silence of the Lambs
+1. The Aviator
 1. Coherence
 1. Primer
 1. Scott Pilgram v. The World
