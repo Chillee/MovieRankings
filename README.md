@@ -6,7 +6,7 @@
 
 ### S tier - Best 10/10
 
-1. Three Billboards outside Ebbing, Missouri - 10/10.
+1. Three Billboards Outside Ebbing, Missouri - 10/10. McDonagh is quickly becoming one of my favorite directors. This movie and In Bruges were both fantastic. The characters are great. We are introduced Mildred Hayes and sympathize for her at the start. Then we find out Willoughby has cancer and suddenly morality is less clear. Dixon starts as an idiotic racist who redeems himself. Characters like James (Peter Dinklage), Penelope and Anne Hayes only appear for only a few scenes yet I feel like I really "get them". Characters are also super efficent. It's similar to a musical where in a tight knit cast every character has a relationship with the others (think Dear Evan Hansen).  The comedy is so witty. I love the scene where the ex-husband keeps making fun of his son for having cereal in his hair - so many subtle jabs. The director often sticks a tragic and comedic scene next to each other. The first one that immediately comes to mind is when Willoughby shoots himself (that was so emotional) and we go to a shot of Dixon being an idiot. McDonaugh puts a lot of focus on his setting. This is most apparent in In Bruges where Bruges represents purgatory on earth. I think this context is important for watching his films. The ending where Dixon and Mildred team up is satisfying. I love that they say that will "decide on the way".
 
 ---
 
