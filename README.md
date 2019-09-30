@@ -19,13 +19,12 @@
 
 ### C tier - OK Movies 5-7/10
 1. A Few Good Men - 7/10. Part of the reason I watched this movie is 
-
-1. Unbreakable - 5/10. Pacing was slow. They spent so much time convincing us that the main character was unbreakable. We GET IT. He is unbreakable!!! Twist was not exciting. Horace picked this movie and it suuuuuuuuuuuuuuucked. 
+1. Before Sunset - 6.5/10. The characters weren't very likable separately and as a couple. I love [this scene](https://www.youtube.com/watch?v=dSnAaf9r8Ow) though. I also find myself wanting to finish the triology. I do like the idea of watching a couple over the years, similar to Jim and Pam in the Office. Also, the girl is fucking scary. I keep thinking she's gonna kill him
 
 ---
 
 ### F tier - did not enjoy <4/10
-1. Unbreakable - 4/10. Hashes over and over how the man is unbreakable. The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case.
+1. Unbreakable - 4/10. Pacing was slow. They spent so much time convincing us that the main character was unbreakable. We GET IT. He is unbreakable!!! The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case. Horace picked this movie and it suuuuuuuuuuuuuuucked.
 
 ## Horace
 
