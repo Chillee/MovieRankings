@@ -6,7 +6,10 @@
 
 ### S tier - Best 10/10
 
+1. Before Trilogy - 11/10. Yes, this fucks up my rating system. But together, the three movies are much stronger than the sum of it's parts.
 1. Three Billboards Outside Ebbing, Missouri - 10/10. McDonagh is quickly becoming one of my favorite directors. This movie and In Bruges were both fantastic. The characters are great. We are introduced Mildred Hayes and sympathize for her at the start. Then we find out Willoughby has cancer and suddenly morality is less clear. Dixon starts as an idiotic racist who redeems himself. Characters like James (Peter Dinklage), Penelope and Anne Hayes only appear for only a few scenes yet I feel like I really "get them". Characters are also super efficent. It's similar to a musical where in a tight knit cast every character has a relationship with the others (think Dear Evan Hansen).  The comedy is so witty. I love the scene where the ex-husband keeps making fun of his son for having cereal in his hair - so many subtle jabs. The director often sticks a tragic and comedic scene next to each other. The first one that immediately comes to mind is when Willoughby shoots himself (that was so emotional) and we go to a shot of Dixon being an idiot. McDonaugh puts a lot of focus on his setting. This is most apparent in In Bruges where Bruges represents purgatory on earth. I think this context is important for watching his films. The ending where Dixon and Mildred team up is satisfying. I love that they say that will "decide on the way".
+1. Before Sunset - 10/10. From the start of the movie, I wanted Jesse to take Celine in his arms and kiss her... but that never happens. There's a lingering suspense for the entire film over whether they will get back together. The film is shot in real time, which gives a much stronger sense of being "in" the movie. The little cues such as when Celine directs Jesse with "let's take a left here" give the sense of being in the present. The style in this movie is stronger and even better than the first. The best scene in the movie was Celine's outburst in the cab. There was so much emotion all at once. That's when you know the feelings are still there for both of them. The dialouge is also very good. They talk exactly the way I'd expect them to after not seeing each other for 9 years. The actors for Jesse and Celine were also producers for the film, and that shows in the development of their characters and dialogue.
+1. Before Midnight - 9.5/10. The reason this isn't a 10 is the ending wasn't satisfying to me. There's this huge climax of a fight and it's unclear how the two will resolve their issues. Then, suddenly, they made up. In the beginning of the series, an arguing couple leads to the two of them to start talking but by the end, they become that couple. It's genuinely hard to take sides during the argument and I felt so emotionally attached to the characters at that point. I wanted so much for them to make up and stay together. The scene at the table was awesome - the banter between all the couples was great. I'm in agreement with Cinefix that this movie is the most honest depiction of love. It's rare to get a series of films that follow a couple over a scale of years. Most RomComs end with the couple getting together. The only thing that comes close is Pam and Jim's relationship in the Office and that took place over many years of the series. The Before Trilogy was able to capture that in three movies which is something special. 
 
 ---
 
@@ -18,14 +21,13 @@
 ---
 
 ### C tier - OK Movies 5-7/10
-1. A Few Good Men - 7/10. Part of the reason I watched this movie is 
-
-1. Unbreakable - 5/10. Pacing was slow. They spent so much time convincing us that the main character was unbreakable. We GET IT. He is unbreakable!!! Twist was not exciting. Horace picked this movie and it suuuuuuuuuuuuuuucked. 
+1. A Few Good Men - 7/10. Part of the reason I watched this movie is  
+1. Before Sunrise - 6.5/10. The telephone scene was great. I love the idea of two people pretending to talk to a friend to express how they truly feel about each other. I thought Celine was kinda scary, like she would actually kill Jesse. They have a tiny argument in the middle of the film that made me think maybe they aren't good for each other.
 
 ---
 
 ### F tier - did not enjoy <4/10
-1. Unbreakable - 4/10. Hashes over and over how the man is unbreakable. The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case.
+1. Unbreakable - 4/10. Pacing was slow. Hashes over and over how the man is unbreakable. The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case.
 
 ## Horace
 
