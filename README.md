@@ -22,12 +22,13 @@
 
 ### C tier - OK Movies 5-7/10
 1. A Few Good Men - 7/10. Part of the reason I watched this movie is  
-1. Before Sunrise - 6.5/10. The telephone scene was great. I love the idea of two people pretending to talk to a friend to express how they truly feel about each other. I thought Celine was kinda scary, like she would actually kill Jesse. They have a tiny argument in the middle of the film that made me think maybe they aren't good for each other.
+1. Before Sunrise - 6.5/10. The telephone scene was great. . I thought Celine was kinda scary, like she would actually kill Jesse. They have a tiny argument in the middle of the film that made me think maybe they aren't good for each other.
+1. Before Sunset - 6.5/10. The characters weren't very likable separately and as a couple. I love [this scene](https://www.youtube.com/watch?v=dSnAaf9r8Ow) though - two people pretending to talk to a friend to express how they truly feel about each other. I also find myself wanting to finish the triology. I do like the idea of watching a couple over the years, similar to Jim and Pam in the Office. Also, the girl is fucking scary. I keep thinking she's gonna kill him.
 
 ---
 
 ### F tier - did not enjoy <4/10
-1. Unbreakable - 4/10. Pacing was slow. Hashes over and over how the man is unbreakable. The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case.
+1. Unbreakable - 4/10. Pacing was slow. They spent so much time convincing us that the main character was unbreakable. We GET ITG He is unbreakable!!! The twist ending is not satisfying at all. This was recommended as a movie where the villain is competent. Unclear if that was the case. Horace picked this movie and it suuuuuuuuuuuuuuucked.
 
 ## Horace
 
@@ -39,6 +40,7 @@
 1. **The Fighter**
 1. **The Good the Bad and the Ugly (rewatch)**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception. 
+1. **Three Billboards Outside Ebbing, Missouri**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **Synecdoche NY**: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
@@ -114,4 +116,6 @@ Queue
 1. Dallas Buyer's Club (Zaibo watched this solo :'( )
 1. The Graduate
 1. [Movies you should go in with out trailers or descriptions](https://www.reddit.com/r/MovieSuggestions/comments/93tp5e/movies_that_are_especially_great_if_you_go_in/)
+1. Being John Malkovich
 
+before sunrise
