@@ -117,5 +117,21 @@ Queue
 1. The Graduate
 1. [Movies you should go in with out trailers or descriptions](https://www.reddit.com/r/MovieSuggestions/comments/93tp5e/movies_that_are_especially_great_if_you_go_in/)
 1. Being John Malkovich
+1. There Will Be Blood 
+1. Zaibo kinda wants to watch Taxi Driver again
+1. Gravity 
+1. A Clockwork Orange
+1. Devil's Advocate
+1. Steve jobs
+1. Lawrence of Arabia 
+1. Ameli 
+1. Carlisle
+1. Happiness
+
+
+10/14
+1. The Third Man 
+1. American Beauty
+1. Fruitvale station
 
 before sunrise
