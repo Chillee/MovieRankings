@@ -22,9 +22,8 @@
 ---
 
 ### C tier - OK Movies 5-7/10
-1. A Few Good Men - 7/10. Part of the reason I watched this movie is  
-1. Before Sunrise - 6.5/10. The telephone scene was great. . I thought Celine was kinda scary, like she would actually kill Jesse. They have a tiny argument in the middle of the film that made me think maybe they aren't good for each other.
-1. Before Sunset - 6.5/10. The characters weren't very likable separately and as a couple. I love [this scene](https://www.youtube.com/watch?v=dSnAaf9r8Ow) though - two people pretending to talk to a friend to express how they truly feel about each other. I also find myself wanting to finish the triology. I do like the idea of watching a couple over the years, similar to Jim and Pam in the Office. Also, the girl is fucking scary. I keep thinking she's gonna kill him.
+1. A Few Good Men - 7/10. Part of the reason I watched this movie is because on /r/moviesuggestions, it was cited as a movie with a competent villain. I don't completely agree. One of the main attractions for this movie was Jack Nicholson's monologue. It didn't really live up to the hype for me. Tom Cruise is a baller. Military law is weird.
+1. Before Sunrise - 6.5/10. The characters weren't very likable separately and as a couple. I love [this scene](https://www.youtube.com/watch?v=dSnAaf9r8Ow) though - two people pretending to talk to a friend to express how they truly feel about each other. I also find myself wanting to finish the triology. I do like the idea of watching a couple over the years, similar to Jim and Pam in the Office. Also, the girl is fucking scary. I keep thinking she's gonna kill him.
 
 ---
 
