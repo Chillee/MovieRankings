@@ -97,10 +97,12 @@
 1. Good Will Hunting
 1. Silence of the Lambs
 1. The Aviator
+1. Avengers: End Game
 1. Coherence
 1. Primer
 1. Scott Pilgram v. The World
 1. Brokeback Mountain
+1. Spider Man: Far From Home
 1. American Psycho
 1. Children of Men
 1. Drive
