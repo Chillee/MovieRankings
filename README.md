@@ -137,7 +137,6 @@ Queue
 
 10/14
 1. The Third Man 
-1. American Beauty
 1. Fruitvale station
 
 before sunrise
