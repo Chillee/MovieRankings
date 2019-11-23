@@ -104,6 +104,7 @@
 1. The Aviator
 1. Avengers: End Game
 1. Coherence
+1. The Greatest Showman
 1. Primer
 1. Scott Pilgram v. The World
 1. Brokeback Mountain
@@ -112,6 +113,7 @@
 1. Children of Men
 1. Drive
 1. Mad Max: Fury Road
+1. American Beauty
 1. Unbreakable
 1. Limitless
 1. Under The Skin (unfinished)
