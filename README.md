@@ -121,9 +121,9 @@
 
 ## Isay
 
-1. American Psycho - "Although it's first on the list, I give this a three out of ten"
+1. American Psycho - "Although it's first on the list, I give this at most a three out of ten"
 1. Unbreakable
-1. Children of Men
+1. Children of Men ( << Unbreakable)
 
 Queue
 
