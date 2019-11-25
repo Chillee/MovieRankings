@@ -65,6 +65,7 @@
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
+1. **Joker**
 1. **Good Will Hunting**
 1. **Spider Man: Far From Home**  
 1. **The Truman Show**
