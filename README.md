@@ -150,3 +150,7 @@ Queue
 10/14
 1. The Third Man 
 1. Fruitvale station
+
+## Ozer
+
+Tbh I was probably playing Monkey Ball during most of these :(
