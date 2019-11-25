@@ -6,6 +6,7 @@
 
 ### S tier - Best 10/10
 
+1. Drive - 11/10. Haha just kidding, Drive fucking sucks!
 1. Before Trilogy - 10+/10. Together, the three movies are much stronger than the sum of it's parts. I wanted to give an 11/10, but I didn't want to break my scale and set a bad precedent.
 1. Three Billboards Outside Ebbing, Missouri - 10/10. McDonagh is quickly becoming one of my favorite directors. This movie and In Bruges were both fantastic. The characters are great. We are introduced Mildred Hayes and sympathize for her at the start. Then we find out Willoughby has cancer and suddenly morality is less clear. Dixon starts as an idiotic racist who redeems himself. Characters like James (Peter Dinklage), Penelope and Anne Hayes only appear for only a few scenes yet I feel like I really "get them". Characters are also super efficent. It's similar to a musical where in a tight knit cast every character has a relationship with the others (think Dear Evan Hansen).  The comedy is so witty. I love the scene where the ex-husband keeps making fun of his son for having cereal in his hair - so many subtle jabs. The director often sticks a tragic and comedic scene next to each other. The first one that immediately comes to mind is when Willoughby shoots himself (that was so emotional) and we go to a shot of Dixon being an idiot. McDonaugh puts a lot of focus on his setting. This is most apparent in In Bruges where Bruges represents purgatory on earth. I think this context is important for watching his films. The ending where Dixon and Mildred team up is satisfying. I love that they say that will "decide on the way".
 1. Before Sunset - 10/10. From the start of the movie, I wanted Jesse to take Celine in his arms and kiss her... but that never happens. There's a lingering suspense for the entire film over whether they will get back together. The film is shot in real time, which gives a much stronger sense of being "in" the movie. The little cues such as when Celine directs Jesse with "let's take a left here" give the sense of being in the present. The style in this movie is stronger and even better than the first. The best scene in the movie was Celine's outburst in the cab. There was so much emotion all at once. That's when you know the feelings are still there for both of them. The dialouge is also very good. They talk exactly the way I'd expect them to after not seeing each other for 9 years. The actors for Jesse and Celine were also producers for the film, and that shows in the development of their characters and dialogue. After the movie ended, I listened to Carmen Fantasy and I felt like I understood the piece in a way I've never felt before.  
@@ -111,7 +112,7 @@
 1. Brokeback Mountain
 1. Spider Man: Far From Home
 1. American Psycho
-1. Children of Men
+1. Children of Men - "This is the last good movie on the list; there's a heavy drop-off" 
 1. Drive
 1. Mad Max: Fury Road
 1. American Beauty
