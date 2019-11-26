@@ -96,6 +96,7 @@
 1. **There Will Be Blood (unfinished)**: I watched the first half, and I wasn't very engaged. I've heard some people mention that this movie is "80% drudgery made up with some phenomenal moments", so I want to finish this film at some point.
 1. **The Imitation Game**: The worst film I've watched in a long time. I just didn't care for any of the characters. The fact that this movie drastically departs from Turing's real story, pitting him against the government, the coworkers, a Russian spy, or basically anything that will characterize Turing even more as an isolated tortured genius doesn't help. I tend to have a soft spot for movies like this, but I found this movie unbelievably boring.
 1. **Under The Skin (unfinished)**: I have found the limits of how much "art house" I can handle in a movie.
+1. **Game of Thrones Season 8**: I will make an exception from movies for this one.
 
 
 ## Kevin
@@ -150,3 +151,7 @@ Queue
 10/14
 1. The Third Man 
 1. Fruitvale station
+
+## Ozer
+
+Tbh I was probably playing Monkey Ball during most of these :(
