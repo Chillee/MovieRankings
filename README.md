@@ -124,9 +124,34 @@
 
 ## Isay
 
-1. American Psycho - "Although it's first on the list, I give this at most a three out of ten"
-1. Unbreakable
-1. Children of Men ( << Unbreakable)
+### S tier - 10/10, masterpiece
+
+1. none yet
+
+### A tier - 8-9/10, excellent
+
+1. none yet
+
+### B tier - 7/10, very good
+
+1. none yet
+
+### C tier - 5-6/10, solid/good, worth my time
+
+1. none yet
+
+### D tier - 4/10, bad, not worth my time, but had a signficantly large number of decently enjoyable moments
+
+1. none yet
+
+### F tier - 1-3/10, very bad, definitely not worth my time
+
+1. American Psycho: "Although it's first on the list, I give this at most a three out of ten." Decent premise of a neurotic businessman who can't contain his neuroticism and goes on secret killing rampages as a result. Mostly kind of a pointless movie about how society at large doesn't care about the wrongdoing of the upper class as long as surrounding individuals can maintain their bottom line and make money. Pretty banal message. A bit gory at times, overall not particularly necessary. 3/10.
+1. Unbreakable: At first, I thought this was a bit of a cute movie about a medically fragile man, "Mr. Glass", looking to find a superhero by becoming a real-life villain perpetrating various homicidal crimes. Overall the pacing was far too slow, almost sluggish at times. Small twist at the end. Overall, decent but unremarkable. 3/10.
+
+### Garbage tier - 0/10, refuse in the form of a film
+
+1. Children of Men: Frenzied, melodramatic pile of garbage. This film is about a post-apocalyptic society that has become infertile. During the movie, a woman is found to be pregnant, and the plot is about making sure she safely delivers the baby while trying to keep her out of harms way in a dangerous world. The overall premise sounds alright, but the driving chaotic pace of catastrophic events felt rather unnecessary and annoying. Additionally, the director seems to have a penchant for melodrama. The main character's wife dies, best friend dies, and eventually the main character himself dies. These events are crafted to happen in a very dramatic heart-pulling fashion, but overdone to the point of being pathetically mawkish. My best guess is that the chaos and melodrama were the director's best attempt to disguise the lack of any kind of substantive content. Overall this movie is a heaping pile of garbage, filled with consecutive chains of melodramatic cliches, a disorganized, anarchic plot line, and lack of any meaningful subject matter. 0/10.
 
 Queue
 
