@@ -101,28 +101,38 @@
 
 ## Kevin
 
-1. Harry Met Sally
-1. Three Billboards Outside Ebbing Missouri
-1. Good Will Hunting
-1. Silence of the Lambs
-1. The Aviator
-1. Avengers: End Game
-1. Coherence
-1. The Greatest Showman
-1. Primer
-1. Scott Pilgram v. The World
-1. Brokeback Mountain
-1. Spider Man: Far From Home
-1. American Psycho
-1. Children of Men - "This is the last good movie on the list; there's a heavy drop-off" 
-1. Drive
-1. Mad Max: Fury Road
-1. American Beauty
-1. Unbreakable
-1. Limitless
-1. Under The Skin (unfinished)
+**S (10/10)**
+1. **Harry Met Sally**: One of the first movies that I saw where I never really felt bored, didn't see big flaws in any part of the movie, and at multiple moments in the film was incredibly impressed with the framing of the shots. The way that it's cut with interviews with couples threw me off a bit first, but ended up being really charming as well. 
 
-## Isay
+**A (9/10)**
+1. **Three Billboards Outside Ebbing Missouri**: I thought this was going to be a really artsy movie that I wouldn't enjoy, but I thought that the characters were really fascinating. 
+1. **Good Will Hunting**
+1. **Silence of the Lambs**
+
+**B (8/10)**
+1. **The Aviator**: I don't know how to feel about this movie. I enjoyed each scene, but the movie starts to drag on due to its length. Also, it was kind of neat but it was also about some guy I don't really care about.
+1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
+1. **Coherence**
+1. **The Greatest Showman**
+1. **Primer**
+1. **Scott Pilgram v. The World**
+1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
+1. **Brokeback Mountain**
+1. **Spider Man: Far From Home**
+
+**C (7/10)**
+1. **American Psycho**
+1. **Children of Men**: 
+1. **Mad Max: Fury Road** - This is the last good movie on the list; there's a heavy drop-off. Surprisingly good, funny, and more memorable than it has any right to be, perhaps because of memability. A rare C movie I'd watch again.
+
+**F (1-4/10)**
+1. **Drive**: 4/10
+1. **American Beauty**: 4/10
+1. **Unbreakable**: 2/10
+1. **Limitless**: 2/10. I went into this movie hoping it would be a fun, indulgent exploration of what it would be like to be addicted to a drug that made you brilliant. Instead, I got a childless, mindless exploration of what it would be like being addicted to a drug that made you godlike, and then wasting it, and then somehow ending up on top of the world without ever deserving it. 
+1. **Under The Skin**: 0/10. We left this movie unfinished. Thank goodness, because it was pretty unwatchable. It felt like someone went to film school for a year, thought "hey, I can do this," and then dropped a fat load of money to blackmail Scarlett Johansson into actng in it without learning plot, characters, or when do use certain shots. This is the only one unfinished because of the movie being terrible, and also totally felt like a waste of time.
+
+## **Isay
 
 ### S tier - 10/10, masterpiece
 
