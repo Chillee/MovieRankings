@@ -114,9 +114,10 @@
 1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
 1. **Coherence**
 1. **The Greatest Showman**
+1. **Chinatown**: My movie rankings are not based on historical impact or cultural significance, which would move Chinatown up the list. While I enjoyed the movie's numerous trope reversals and the continual references to what could have been throwaway moments in the first act, I thought that the movie demanded too much of the viewer. Part of the problem may have come from simply confusing the characters with each other. In terms of technical aspects such as lighting or Nicholson and Huston's performances, the movie was impressive as well. I could see this movie rising in my rankings as I think about it more, but ultimately it was somewhat disappointing compared to expectations.
 1. **Primer**
-1. **Scott Pilgram v. The World**
 1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
+1. **Scott Pilgram v. The World**
 1. **Brokeback Mountain**
 1. **Spider Man: Far From Home**
 
