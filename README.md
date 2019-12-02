@@ -67,6 +67,7 @@
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
+1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 1. **Joker**
 1. **Good Will Hunting**
 1. **Spider Man: Far From Home**  
@@ -76,7 +77,6 @@
 1. **Dunkirk**
 1. **The King's Speech**
 1. **Coherence**: Less mind-bending than Primer, but a more likable character arc. Ending seemed like a bit of a cheap twist.
-1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
 1. **Aladdin**
