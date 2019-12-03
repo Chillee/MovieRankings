@@ -30,7 +30,7 @@
 1. Before Sunrise - 6.5/10. The characters weren't very likable separately and as a couple. I love [this scene](https://www.youtube.com/watch?v=dSnAaf9r8Ow) though - two people pretending to talk to a friend to express how they truly feel about each other. I also find myself wanting to finish the triology. I do like the idea of watching a couple over the years, similar to Jim and Pam in the Office. Also, the girl is fucking scary. I keep thinking she's gonna kill him.
 1. American Beauty - 6/10. I loved the beginning. If the entire movie were Lester monologuing, I would have enjoyed it immensely. I found all the characters to be deplorable (in a good way). Directing style is strange, uses a lot of playbacks. I can see why the movie is iconic. Lester has a nice redemption arc.
 1. Snowpiercer - 6/10. This is my second time watching the movie. My impressions are about the same - I think the ending sucks and it totally blotches the movie. Why do they destroy the train and kill all of humanity? Why does the main character condone this? Personally, I would have preferred if he became the conductor as planned.
-1. Frozen 2 - 5.5/10. Honestly, I'll watch any Frozen sequel, I like the characters (Anna) enough. Character development kinda sucked though. Olaf is in some philosophical phase that doesn't make too much sense to me. He keeps talking about change... who is the target audience here? The kids that watched Frozen that are older now? There was a decent amount of expoisition to say that everyone is a few years older now (Oh I see the first movie came out six years ago so the Frozen universe is in real time.) That's actually pretty cool. I think something similar goes in in HTTYD and the Before Trilogy and it works out well. Anna... I really wish she got some powers. There was some plot points about her being powerless so I thought she would have some kind of magic. Instead she becomes the queen. Honestly that was a big twist for me - should she really be queen...? Kristoff has the stupidest arc, he's basically a blubbering idiot the entire movie. I couldn't believe what I was watching when I saw his solo song. It felt so out of place in Frozen. Elsa makes negative progress as a person? We dedicated an entire movie to her not shutting others out and she does it again (not in a redeeming way either, she does it towards the end!) Plot wasn't great either. Who is the person singing? There was so much anticipation for it but I left that scene confused. Was it their dead mother? Was it Elsa the entire time? Why did Elsa freeze? What happened to the parents? This was a man vs nature type movie which is unique, I suppose. The film itself is also a lot darker than the first, both in color and mood. As an aside, the Into the Unknown melody is basically [this](https://youtu.be/zr18GgCvVQs?t=155). The music was not amazing. The mysterious melody did get stuck in my head though and it seems like "Into the Unknown" is suppose to be the flagship song (I'm basing this off the fact that Weezer and Panic! did covers of this song). I feel kinda snubbed with "Show Yourself" though. Who was it? The theme just doesn't have the same appeal as "Let it Go". The animation was absolutely amazing. I remember the Elsa running into the ocean scene from the trailer. The way that scene ends with her taming the horse is awesome. I enjoyed every scene with the water horse. The chameleon was ok as well but I wish it actually did something. The callbacks to Frozen 1 were good too - Olaf summarizing the plot and Elsa listening to herself sing Let it Go. This time around, I notice that Frozen has a top notch cast! Idina (Elsa) played Elphaba, Kristen Bell(Anna)... Well Elanor from the Good Place which is top notch to me, Johnathan Groff (Kristoff) is King George in Hamilton and Jon Gadd (Olaf) is Elder Cunningham in Book of Mormon. These are big names in the musical world
+1. Frozen 2 - 5.5/10. Honestly, I'll watch any Frozen sequel, I like the characters (Anna) enough. Character development kinda sucked though. Olaf is in some philosophical phase that doesn't make too much sense to me. He keeps talking about change... who is the target audience here? The kids that watched Frozen that are older now? There was a decent amount of expoisition to say that everyone is a few years older now (Oh I see the first movie came out six years ago so the Frozen universe is in real time.) That's actually pretty cool. I think something similar goes in in HTTYD and the Before Trilogy and it works out well. Anna... I really wish she got some powers. There was some plot points about her being powerless so I thought she would have some kind of magic. Instead she becomes the queen. Honestly that was a big twist for me - should she really be queen...? Kristoff has the stupidest arc, he's basically a blubbering idiot the entire movie. I couldn't believe what I was watching when I saw his solo song. It felt so out of place in Frozen. Elsa makes negative progress as a person? We dedicated an entire movie to her not shutting others out and she does it again (not in a redeeming way either, she does it towards the end!) Plot wasn't great either. Who is the person singing? There was so much anticipation for it but I left that scene confused. Was it their dead mother? Was it Elsa the entire time? Why did Elsa freeze? What happened to the parents? This was a man vs nature type movie which is unique, I suppose. The film itself is also a lot darker than the first, both in color and mood. As an aside, the Into the Unknown melody is basically [this](https://youtu.be/zr18GgCvVQs?t=155). The music was not amazing. The mysterious melody did get stuck in my head though and it seems like "Into the Unknown" is suppose to be the flagship song (I'm basing this off the fact that Weezer and Panic! did covers of this song). I feel kinda snubbed with "Show Yourself" though. Who was it? The theme just doesn't have the same appeal as "Let it Go". The animation was absolutely amazing. I remember the Elsa running into the ocean scene from the trailer. The way that scene ends with her taming the horse is awesome. I enjoyed every scene with the water horse. The chameleon was ok as well but I wish it actually did something. The callbacks to Frozen 1 were good too - Olaf summarizing the plot and Elsa listening to herself sing Let it Go. This time around, I notice that Frozen has a top notch cast! Idina (Elsa) played Elphaba, Kristen Bell(Anna)... Well Eleanor from the Good Place which is top notch to me, Johnathan Groff (Kristoff) is King George in Hamilton and Jon Gadd (Olaf) is Elder Cunningham in Book of Mormon. These are big names in the musical world
 1. Being John Malkovich - 5/10. ??????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????????
 
 ---
@@ -68,6 +68,7 @@
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
+1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 1. **Joker**
 1. **Good Will Hunting**
 1. **Spider Man: Far From Home**  
@@ -77,7 +78,6 @@
 1. **Dunkirk**
 1. **The King's Speech**
 1. **Coherence**: Less mind-bending than Primer, but a more likable character arc. Ending seemed like a bit of a cheap twist.
-1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
 1. **Aladdin**
@@ -102,32 +102,68 @@
 
 ## Kevin
 
-1. Harry Met Sally
-1. Three Billboards Outside Ebbing Missouri
-1. Good Will Hunting
-1. Silence of the Lambs
-1. The Aviator
-1. Avengers: End Game
-1. Coherence
-1. The Greatest Showman
-1. Primer
-1. Scott Pilgram v. The World
-1. Brokeback Mountain
-1. Spider Man: Far From Home
-1. American Psycho
-1. Children of Men - "This is the last good movie on the list; there's a heavy drop-off" 
-1. Drive
-1. Mad Max: Fury Road
-1. American Beauty
-1. Unbreakable
-1. Limitless
-1. Under The Skin (unfinished)
+**S (10/10)**
+1. **Harry Met Sally**: One of the first movies that I saw where I never really felt bored, didn't see big flaws in any part of the movie, and at multiple moments in the film was incredibly impressed with the framing of the shots. The way that it's cut with interviews with couples threw me off a bit first, but ended up being really charming as well. 
 
-## Isay
+**A (9/10)**
+1. **Three Billboards Outside Ebbing Missouri**: I thought this was going to be a really artsy movie that I wouldn't enjoy, but I thought that the characters were really fascinating. 
+1. **Good Will Hunting**
+1. **Silence of the Lambs**
 
-1. American Psycho - "Although it's first on the list, I give this at most a three out of ten"
-1. Unbreakable
-1. Children of Men ( << Unbreakable)
+**B (8/10)**
+1. **The Aviator**: I don't know how to feel about this movie. I enjoyed each scene, but the movie starts to drag on due to its length. Also, it was kind of neat but it was also about some guy I don't really care about.
+1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
+1. **Coherence**
+1. **The Greatest Showman**
+1. **Chinatown**: My movie rankings are not based on historical impact or cultural significance, which would move Chinatown up the list. While I enjoyed the movie's numerous trope reversals and the continual references to what could have been throwaway moments in the first act, I thought that the movie demanded too much of the viewer. Part of the problem may have come from simply confusing the characters with each other. In terms of technical aspects such as lighting or Nicholson and Huston's performances, the movie was impressive as well. I could see this movie rising in my rankings as I think about it more, but ultimately it was somewhat disappointing compared to expectations.
+1. **Primer**
+1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
+1. **Scott Pilgram v. The World**
+1. **Brokeback Mountain**
+1. **Spider Man: Far From Home**
+
+**C (7/10)**
+1. **American Psycho**
+1. **Children of Men**: 
+1. **Mad Max: Fury Road** - This is the last good movie on the list; there's a heavy drop-off. Surprisingly good, funny, and more memorable than it has any right to be, perhaps because of memability. A rare C movie I'd watch again.
+
+**F (1-4/10)**
+1. **Drive**: 4/10
+1. **American Beauty**: 4/10
+1. **Unbreakable**: 2/10
+1. **Limitless**: 2/10. I went into this movie hoping it would be a fun, indulgent exploration of what it would be like to be addicted to a drug that made you brilliant. Instead, I got a childless, mindless exploration of what it would be like being addicted to a drug that made you godlike, and then wasting it, and then somehow ending up on top of the world without ever deserving it. 
+1. **Under The Skin**: 0/10. We left this movie unfinished. Thank goodness, because it was pretty unwatchable. It felt like someone went to film school for a year, thought "hey, I can do this," and then dropped a fat load of money to blackmail Scarlett Johansson into actng in it without learning plot, characters, or when do use certain shots. This is the only one unfinished because of the movie being terrible, and also totally felt like a waste of time.
+
+## **Isay
+
+### S tier - 10/10, masterpiece
+
+1. none yet
+
+### A tier - 8-9/10, excellent
+
+1. none yet
+
+### B tier - 7/10, very good
+
+1. none yet
+
+### C tier - 5-6/10, solid/good, worth my time
+
+1. none yet
+
+### D tier - 4/10, bad, not worth my time, but had a signficantly large number of decently enjoyable moments
+
+1. none yet
+
+### F tier - 1-3/10, very bad, definitely not worth my time
+
+1. American Psycho: "Although it's first on the list, I give this at most a three out of ten." Decent premise of a neurotic businessman who can't contain his neuroticism and goes on secret killing rampages as a result. Mostly kind of a pointless movie about how society at large doesn't care about the wrongdoing of the upper class as long as surrounding individuals can maintain their bottom line and make money. Pretty banal message. A bit gory at times, overall not particularly necessary. 3/10.
+1. Unbreakable: At first, I thought this was a bit of a cute movie about a medically fragile man, "Mr. Glass", looking to find a superhero by becoming a real-life villain perpetrating various homicidal crimes. Overall the pacing was far too slow, almost sluggish at times. Small twist at the end. Overall, decent but unremarkable. 3/10.
+
+### Garbage tier - 0/10, refuse in the form of a film
+
+1. Children of Men: Frenzied, melodramatic pile of garbage. This film is about a post-apocalyptic society that has become infertile. During the movie, a woman is found to be pregnant, and the plot is about making sure she safely delivers the baby while trying to keep her out of harms way in a dangerous world. The overall premise sounds alright, but the driving chaotic pace of catastrophic events felt rather unnecessary and annoying. Additionally, the director seems to have a penchant for melodrama. The main character's wife dies, best friend dies, and eventually the main character himself dies. These events are crafted to happen in a very dramatic heart-pulling fashion, but overdone to the point of being pathetically mawkish. My best guess is that the chaos and melodrama were the director's best attempt to disguise the lack of any kind of substantive content. Overall this movie is a heaping pile of garbage, filled with consecutive chains of melodramatic cliches, a disorganized, anarchic plot line, and lack of any meaningful subject matter. 0/10.
 
 Queue
 
