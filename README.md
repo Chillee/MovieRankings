@@ -165,7 +165,11 @@
 
 1. Children of Men: Frenzied, melodramatic pile of garbage. This film is about a post-apocalyptic society that has become infertile. During the movie, a woman is found to be pregnant, and the plot is about making sure she safely delivers the baby while trying to keep her out of harms way in a dangerous world. The overall premise sounds alright, but the driving chaotic pace of catastrophic events felt rather unnecessary and annoying. Additionally, the director seems to have a penchant for melodrama. The main character's wife dies, best friend dies, and eventually the main character himself dies. These events are crafted to happen in a very dramatic heart-pulling fashion, but overdone to the point of being pathetically mawkish. My best guess is that the chaos and melodrama were the director's best attempt to disguise the lack of any kind of substantive content. Overall this movie is a heaping pile of garbage, filled with consecutive chains of melodramatic cliches, a disorganized, anarchic plot line, and lack of any meaningful subject matter. 0/10.
 
-Queue
+## Ozer
+
+Tbh I was probably playing Monkey Ball during most of these :(
+
+## Queue
 
 1. Kill Bill
 1. Full Metal Jacket
@@ -188,7 +192,3 @@ Queue
 10/14
 1. The Third Man 
 1. Fruitvale station
-
-## Ozer
-
-Tbh I was probably playing Monkey Ball during most of these :(
