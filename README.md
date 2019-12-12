@@ -111,13 +111,14 @@
 1. **Three Billboards Outside Ebbing Missouri**: I thought this was going to be a really artsy movie that I wouldn't enjoy, but I thought that the characters were really fascinating. 
 1. **Good Will Hunting**
 1. **Silence of the Lambs**
+1. **Casablanca**: If you're thinking that this movie doesn't hold up, that it is boring because it is in black and white, or that the tropes introduced in this movie would have long-become cliche, don't worry. I found this movie refreshingly relatable outside of a few moments where Ilsa transforms into a helpless plot point instead of a person. This movie could have been a 10/10 but there were a few too many moments with an awkward timing or non-sequitor, perhaps because of the age of the film. Zaibo made the movie watching experience worse since he knew a few details going into it and was waiting for certain lines to be said. Spoiler ahead: I also was positively surprised that despite the happy ending, it was still bittersweet for Rick. Casablanca is effective at telling a love story without it being only a love story.
 
 **B (8/10)**
 1. **The Aviator**: I don't know how to feel about this movie. I enjoyed each scene, but the movie starts to drag on due to its length. Also, it was kind of neat but it was also about some guy I don't really care about.
 1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
 1. **Coherence**
-1. **The Greatest Showman**
 1. **Chinatown**: My movie rankings are not based on historical impact or cultural significance, which would move Chinatown up the list. While I enjoyed the movie's numerous trope reversals and the continual references to what could have been throwaway moments in the first act, I thought that the movie demanded too much of the viewer. Part of the problem may have come from simply confusing the characters with each other. In terms of technical aspects such as lighting or Nicholson and Huston's performances, the movie was impressive as well. I could see this movie rising in my rankings as I think about it more, but ultimately it was somewhat disappointing compared to expectations.
+1. **The Greatest Showman**
 1. **Primer**
 1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
 1. **Scott Pilgram v. The World**
