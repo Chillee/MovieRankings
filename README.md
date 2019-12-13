@@ -130,7 +130,10 @@
 1. **Children of Men**: 
 1. **Mad Max: Fury Road** - This is the last good movie on the list; there's a heavy drop-off. Surprisingly good, funny, and more memorable than it has any right to be, perhaps because of memability. A rare C movie I'd watch again.
 
-**F (1-4/10)**
+**D (6/10)**
+1. **Our times**: 5/10. Unlike the movies below this one, it was actually kind of enjoyable to watch, with the knowledge that it was going to be cliche as all hell and full of cheesy, awkward tropes. Any movie that I would consider watching again or enjoyed means that it shouldn't be an F in my mind. With that in mind, why does it deserve an D? I understand that it is a very different style, yet by the end of it the excessive narration and flashbacks were far too frustrating. At one point, the main male character had monologued for two or three minutes, followed by another taped monologue for another few minutes. It also felt like the director wanted see how many times he could go for a shot that was supposed to be a shocking reveal, yet have everyone watching say "I knew it" when they see it. There's no need to revisit the same scene three or four times, with the same slow pans. This isn't the Clue movie. Still, there is some charm in the hopeless romanticism and over-the-top dramatics, and if you're looking for something where you can turn your head off and yell about the movie and talk over it without missing anything, this might be the movie for you. 
+
+**F (1-5/10)**
 1. **Drive**: 4/10
 1. **American Beauty**: 4/10
 1. **Unbreakable**: 2/10
