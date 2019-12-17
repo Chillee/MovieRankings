@@ -131,7 +131,8 @@
 
 **C (7/10)**
 1. **American Psycho**
-1. **Children of Men**: 
+1. **The Maltese Falcon**: We watched this for insight into Chinatown. Yet when the movie ended, I felt more confused than ever. Why was there barely anything shown on screen? Almost everyone gets shot off screen, there are a ton of points left unexplained, and the romance plots begged to be better fleshed out. In particular, why was Archer's wife even relevant after we determine that Spade didn't kill Archer? One example of what is wrong with this film is that there was no indication that the love between Spade and O'Shaughnessy was real, which perhaps was the point. However, the constant lying and twists meant that I couldn't take anything for face value, making me not both investing any effort into trying to figure out what was really happening. After all, why bother when nothing is real and everyone is lying anyway? There were a number of shots which now simply feel dated and juvenile, most noticeably the obvious upward angle when Spade and Gutman are speaking at Gutman's apartment to make Gutman appear more imposing. It may have been more effective if it had been less obvious, used for less time, or even if Spade and Gutman weren't clearly the same height. For a famous movie, I expected the film to feel memorable. 
+1. **Children of Men**: I put this movie up here not because of a good plot but mostly out of respect for the cinematography on display.
 1. **Mad Max: Fury Road** - This is the last good movie on the list; there's a heavy drop-off. Surprisingly good, funny, and more memorable than it has any right to be, perhaps because of memability. A rare C movie I'd watch again.
 
 **D (6/10)**
