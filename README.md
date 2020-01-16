@@ -57,7 +57,7 @@
 1. **Children of Men**
 1. **Drive**
 ------------------
-1. **Parasite**
+5. **Parasite**
 1. **In Bruges**
 1. **The Fighter**
 1. **The Good the Bad and the Ugly (rewatch)**
@@ -104,7 +104,7 @@
 1. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie. 
-1. **Alien**
+1. **Alien**: I feel like this is a movie whose age really detracts from the viewing experience of the film. There were several scenes where the CGI was immersion breaking - in particular, [the scene where the alien is blasted out of the spaceship](https://www.youtube.com/watch?v=U-mmbStFrAA&t=51s). It was difficult for me to take these scenes seriously. I thought the plot was decent, and so was the world building, but the outdated effects took away from a lot of the horror of this film.
 1. **Unbreakable**
 1. **How To Train Your Dragon 3**: Eh. 1 >> 2 >> 3. My main issue with this film is that the villain seemed tacked on. The villains in 1 had a clear purpose, as well as the one in 2. This movie seemed to just meander around, and the villain never really seemed present throughout the movie. I learned after the movie that the villain in this movie was not the original plan, that the original plan for 2 and 3 involved Hiccup's mother fighting him, and putting the villain from 2 in the 3rd movie. This movie just seemed like a step down in stakes. I did enjoy the ending though, I was surprised that they ended on a somewhat bittersweet note. Props to the movie for doing that. Interestingly, other than who I watched the movie with, nobody else was in the movie theater when I watched this. Strange experience.
 1. **Limitless**: Another guilty pleasure movie. In much the same way I enjoyed Now You See Me's omniscient villains, I enjoyed watching Eddie Morra outwit everyone else. This movie also deserves credit for popularizing the idea of nootropics. However, the movie shoots past my suspension of disbelief with how "smart" the character is. I get that writing characters that are smarter than you is hard, but Eddie gets essentially supernatural powers. I think I would really enjoy a scifi film that examined the societal effect of a mechanism that moderately increases human intelligence. Kinda like Gattaca, but extended towards brain-level effects.
