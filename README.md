@@ -1,9 +1,13 @@
 # Movie Rankings (Fall 2018 - Fall 2019)
 
 [Horace's Globally Ordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#horace)
+
 [Zaibo's Unordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#zbobo-p)
+
 [Kevin's Fledgling Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#kevin)
+
 [Isay's Questionable Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#isay)
+
 [Ozer's Nonexistent Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#ozer)
 
 
