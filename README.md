@@ -2,7 +2,7 @@
 
 [Horace's Globally Ordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#horace)
 
-[Zaibo's Unordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#zbobo-p)
+[Zaibo's Also Globally Ordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#zbobo-p)
 
 [Kevin's Fledgling Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#kevin)
 
