@@ -90,7 +90,7 @@
 
 3/5
 -----------------------------------
-33. **Joker**
+32. **Joker**
 1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**  
@@ -110,7 +110,7 @@
 
 2/5
 --------------------------------
-1. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
+49. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie. 
 1. **Alien**: I feel like this is a movie whose age really detracts from the viewing experience of the film. There were several scenes where the CGI was immersion breaking - in particular, [the scene where the alien is blasted out of the spaceship](https://www.youtube.com/watch?v=U-mmbStFrAA&t=51s). It was difficult for me to take these scenes seriously. I thought the plot was decent, and so was the world building, but the outdated effects took away from a lot of the horror of this film.
