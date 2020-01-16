@@ -51,18 +51,21 @@
 1. Mulholland Drive - 3/10. Horace framed this movie as the "ultimate feminine fantasy". Apparently it's also considered the best film of the 21st century. Second to Brokeback Mountain, I was quite excited to watch this movie. And it suuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuucked. The most enjoyable part was teasing Qian with Horace about what "ultimate feminine fantasy" was referring to. She got mad whenever we said it, so we started passing a packet of M&Ms to codify what we meant. This movie was incredibly confusing. At least half the scenes don't make sense. I lost interest around halfway into the film and suddenly the main actors play a new character with a different name. It took a 20 minute video to explain the movie and I wasn't satisfied afterwards. The actor for Betty/Diane was superb. The audition scene was also excellent. 
 
 ## Horace
-
+5/5
+----------------
 1. **Silence of the Lambs**
+1. **Parasite**
 1. **When Harry Met Sally**
 1. **Children of Men**
 1. **Drive**
-------------------
-5. **Parasite**
 1. **In Bruges**
 1. **The Fighter**
 1. **The Good the Bad and the Ugly (rewatch)**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception. 
-1. **Three Billboards Outside Ebbing, Missouri**
+
+4/5
+-----------------------------
+10. **Three Billboards Outside Ebbing, Missouri**
 1. **Being John Malkovich**: ????? I don't know what to say about this movie. I have a hard time imagining how the script writer pitched John Malkovich on this movie. One thing I thought was pretty interesting was how similar this movie was to Get Out. Both are about taking over anothers body, with some old white people secretly plotting behind the scenes. However, while Get Out is about the horror of being possessed, Being John Malkovich is about the possessors. Despite the comedy, the ending of Being John Malkovich is one of the darkest fates I've seen in any movie.
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **Synecdoche NY**: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
@@ -84,7 +87,10 @@
 1. **Scott Pilgrim Vs The World**
 1. **Once Upon a Time in Hollywood**
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
-1. **Joker**
+
+3/5
+-----------------------------------
+33. **Joker**
 1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**  
@@ -101,6 +107,9 @@
 1. **The Fountain**: In some sense, I was put off by this film in the same way that I'm put off by propaganda films. It's definitely a very spiritual film with some great moments, but I think I'm currently incompatible with its fundamental message. I just moved this movie's ranking from below Contagion to below The Wandering Earth, as I think the great moments (especially loved the tree of life/present day arcs) in this movie should be given credit. Definitely a candidate for "movie that might grow on me over the years".
 1. **Lost in Translation**: This movie has three scenes that really stood out to me, two positively and one negatively. The karaoke scene, Charlotte looking back, and the prostitute scene. I wanted to like this movie - I really like the metaphor (maybe thanks to Kanye...), but the alienation of the Japanese jarred me in this movie. The prostitute scene in particular was incredibly uncomfortable to watch. I understand that it's necessary for the main dynamic between the leading characters, and that these scenes arguably furthered the dynamic. I just wish that it wasn't necessary to play into every Japanese stereotype to do so.
 1. **Forrest Gump**: This might just be a cultural zeitgeist type of thing, but I didn't really connect with the film. None of the cultural events that happen emotionally register with me, and neither does Forrest as a character. He was sympathetic enough of a character and I rooted for him, but not enough to carry the film. Also, really didn't like Jenny in the film. I get that a lot of her manipulative actions stemmed her from her abuse as a child, but just as your parents don't excuse you from all blame, neither does Jenny's terrible past excuse her from taking advantage of Forrest for most of her life. I see why people call this a conservative movie - the army glory, Forrest overcoming his disabilities (although he was blessed with being great at running...), the self made film, the condemnation of Jenny's "alternative" lifestyle, etc. I wouldn't say its conservative - more so "traditional". Whether you consider that an euphemism or not, Forrest Gump seems like a story about the non-talented everyday American who succeeds through hard work and doing what he's told. As I said, might just be the zeitgeist of 90s America, an age where the US turned its attention from the USSR inwards and focused on itself.
+
+2/5
+--------------------------------
 1. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie. 
@@ -111,6 +120,9 @@
 1. **Godzilla: King of the Monsters**: Phenomenal trailers (perhaps the best trailers I've ever seen), but they also put 90% of the great moments in it. The human characters were forgettable.
 1. **Now You See Me**: Very much so a guilty pleasure movie. Terrible movie - I didn't care about any of the characters, the twist at the end seemed convoluted and a classic example of a bad twist. Feels like the writers wanted to make The Prestige, but worse. Still, I loved the Prestige, and I tend to love magic movies and villains that seem omniscient, so I enjoyed watching the movie. Still a bad movie though.
 1. **Annie Hall (unfinished)**: Watched this film because I saw someone say that Harry Met Sally and Annie Hall are two rom coms for people who don't like rom coms. I loved Harry Met Sally, but didn't care for the characters in this movie. However, this was the 7th? movie I'd watched that day and I went to sleep right after, so I've been meaning to give this movie another shot.
+
+1/5
+-------------------
 1. **There Will Be Blood (unfinished)**: I watched the first half, and I wasn't very engaged. I've heard some people mention that this movie is "80% drudgery made up with some phenomenal moments", so I want to finish this film at some point.
 1. **The Imitation Game**: The worst film I've watched in a long time. I just didn't care for any of the characters. The fact that this movie drastically departs from Turing's real story, pitting him against the government, the coworkers, a Russian spy, or basically anything that will characterize Turing even more as an isolated tortured genius doesn't help. I tend to have a soft spot for movies like this, but I found this movie unbelievably boring.
 1. **Under The Skin (unfinished)**: I have found the limits of how much "art house" I can handle in a movie.
