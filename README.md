@@ -207,18 +207,32 @@ These movies suuuuuuuuuuuuuuuuuuuck
 
 **S (10/10)**
 1. **Harry Met Sally**: One of the first movies that I saw where I never really felt bored, didn't see big flaws in any part of the movie, and at multiple moments in the film was incredibly impressed with the framing of the shots. The way that it's cut with interviews with couples threw me off a bit first, but ended up being really charming as well.
+1. **Parasite**: As a movie, I think it should be enjoyed without much knowledge
+about it going in. Beyond being captivating from start to finish, I found
+Parasite to showcase great set design and cinematography, especially in the 
+scene in the middle of the movie with the coughing housekeeper. For a decent 
+chunk of the movie, I forgot that I was watching a foreign film, but knowledge 
+of Korean culture certainly seems to elevate it further. Another great movie. 
+Unsure about whether to put this above or below Parasite, so I'll put it below 
+for now. I will probably watch Snowpiercer and The Host because of it.
 
 **A (9/10)**
 1. **Three Billboards Outside Ebbing Missouri**: I thought this was going to be a really artsy movie that I wouldn't enjoy, but I thought that the characters were really fascinating.
 1. **Good Will Hunting**
 1. **Silence of the Lambs**
 1. **Casablanca**: If you're thinking that this movie doesn't hold up, that it is boring because it is in black and white, or that the tropes introduced in this movie would have long-become cliche, don't worry. I found this movie refreshingly relatable outside of a few moments where Ilsa transforms into a helpless plot point instead of a person. This movie could have been a 10/10 but there were a few too many moments with an awkward timing or non-sequitor, perhaps because of the age of the film. Zaibo made the movie watching experience worse since he knew a few details going into it and was waiting for certain lines to be said. Spoiler ahead: I also was positively surprised that despite the happy ending, it was still bittersweet for Rick. Casablanca is effective at telling a love story without it being only a love story.
+1. **Miss Americana**
 
 **B (8/10)**
 1. **The Aviator**: I don't know how to feel about this movie. I enjoyed each scene, but the movie starts to drag on due to its length. Also, it was kind of neat but it was also about some guy I don't really care about.
 1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
 1. **Coherence**
 1. **Chinatown**: My movie rankings are not based on historical impact or cultural significance, which would move Chinatown up the list. While I enjoyed the movie's numerous trope reversals and the continual references to what could have been throwaway moments in the first act, I thought that the movie demanded too much of the viewer. Part of the problem may have come from simply confusing the characters with each other. In terms of technical aspects such as lighting or Nicholson and Huston's performances, the movie was impressive as well. I could see this movie rising in my rankings as I think about it more, but ultimately it was somewhat disappointing compared to expectations.
+1. **Ghost in the Shell**: I wish I could have enjoyed this movie more. I'm 
+certain that if I followed it up with delving deeper into the lore of the 
+various other adaptations that I would better appreciate the subtleties of this 
+film, but on its own it's fairly confusing. Still pretty enjoyable for an 
+animated film from over twenty years ago. 
 1. **The Greatest Showman**
 1. **Primer**
 1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
@@ -233,7 +247,8 @@ These movies suuuuuuuuuuuuuuuuuuuck
 1. **Mad Max: Fury Road** - This is the last good movie on the list; there's a heavy drop-off. Surprisingly good, funny, and more memorable than it has any right to be, perhaps because of memability. A rare C movie I'd watch again.
 
 **D (6/10)**
-1. **Our times**: 5/10. Unlike the movies below this one, it was actually kind of enjoyable to watch, with the knowledge that it was going to be cliche as all hell and full of cheesy, awkward tropes. Any movie that I would consider watching again or enjoyed means that it shouldn't be an F in my mind. With that in mind, why does it deserve an D? I understand that it is a very different style, yet by the end of it the excessive narration and flashbacks were far too frustrating. At one point, the main male character had monologued for two or three minutes, followed by another taped monologue for another few minutes. It also felt like the director wanted see how many times he could go for a shot that was supposed to be a shocking reveal, yet have everyone watching say "I knew it" when they see it. There's no need to revisit the same scene three or four times, with the same slow pans. This isn't the Clue movie. Still, there is some charm in the hopeless romanticism and over-the-top dramatics, and if you're looking for something where you can turn your head off and yell about the movie and talk over it without missing anything, this might be the movie for you.
+1. **Captain Marvel**
+1. **Our times**: Unlike the movies below this one, it was actually kind of enjoyable to watch, with the knowledge that it was going to be cliche as all hell and full of cheesy, awkward tropes. Any movie that I would consider watching again or enjoyed means that it shouldn't be an F in my mind. With that in mind, why does it deserve an D? I understand that it is a very different style, yet by the end of it the excessive narration and flashbacks were far too frustrating. At one point, the main male character had monologued for two or three minutes, followed by another taped monologue for another few minutes. It also felt like the director wanted see how many times he could go for a shot that was supposed to be a shocking reveal, yet have everyone watching say "I knew it" when they see it. There's no need to revisit the same scene three or four times, with the same slow pans. This isn't the Clue movie. Still, there is some charm in the hopeless romanticism and over-the-top dramatics, and if you're looking for something where you can turn your head off and yell about the movie and talk over it without missing anything, this might be the movie for you.
 
 **F (1-5/10)**
 1. **Drive**: 4/10
