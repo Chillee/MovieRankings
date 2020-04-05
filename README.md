@@ -17,11 +17,12 @@
 1. **Parasite**
 1. **Silence of the Lambs**
 1. **When Harry Met Sally**
+1. **Royal Tenenbaums**
 1. **Children of Men**
 1. **Drive**
-1. **In Bruges**
 1. **The Fighter**
 1. **The Good the Bad and the Ugly (rewatch)**
+1. **In Bruges**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception.
 
 4/5 (Willing to rewatch if I'm in the mood)
@@ -41,6 +42,7 @@
 1. **Mad Max Fury Road (rewatch)**: When I first watched this movie I thought it was the "perfect" film - as in, no action film could surpass this. I still believe the action set pieces in this film are near perfection ("Witness me!"), and the action scenes do encompass more character development/world building than some give credit for. But on a second watch of the film, when the glamour starts to become overwhelming, the novelty fading, the second half of the film starts to drag. All my favorite moments were in the first half, but they were memorable enough to land this movie here on my list.
 1. **The Departed**: The best film about lying I've ever seen. The premise originally stuck out to me as something I'd like, but I had no idea how far they could run with this premise. If you've pretended to be someone else for so long that nobody knows you're pretending, what's the difference? Besides the incredible amounts of intrigue packed into the movie, I find the casting to be phenomenal. DiCaprio and Damon both fit perfectly into their roles, and oh wow, Marky Mark what a performance. Single handedly stole every scene he was in. I've seen some rag on Nicholson's performance, but I haven't seen enough of them to find them cliched so I simply found them very ... evocative. One thing I find interesting is simply how many A-list actors found themselves in this movie. Perhaps that's why every discussion I've seen about this movie just uses the actor's names instead of the character's names. Perhaps that's another level of "pretending to be someone else you're not". As a side note, I'm not sure how many of the meta-levels of this concept fans have analyzed into the film. Ie: Is Damon impotent? Is Nicholson impotent? Is Damon gay? Is Nicholson gay? etc.
 1. **Se7en**: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
+1. **Moonrise Kingdom**
 1. **Mulholland Drive**
 1. **Cloud Atlas**
 1. **Pulp Fiction**
