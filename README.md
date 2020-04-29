@@ -127,6 +127,7 @@
 1. Synecdoche NY - 8.5/10.
 1. Schindler's List (rewatch) - 8.5/10. Feel like I matured a bit since my first watching a couple years ago. The score and Itzhak was really well done.
 1. Brokeback Mountain - 8/10. This movie takes the cute scenes that are part of a normal romance movie and invents the gay equivalent. That was so well done. Gyllenhaal (Jack fucking Twist) has another great performance and I'm interested in watching more movies that he stars in. Was a shock when he died.
+1. Goodfellas - 8/10. This movie made me realize I like mob movies. The cast was very similar to The Irishman. I know the plot was going to be similar but I will eat that shit up. The start of the movie is iconic. Highlight is how any times "busting my balls" was said.
 1. Lost in Translation - 8/10.
 1. The Aviator - 8/10. This movie felt like the precessor to "The Wolf of Wallstreet". I think three hour movies are usually pretty hard to sit through but Scorsese makes it work. Katherine Hepburn actor was fantastic, the [accent was very interesting](https://youtu.be/NvDvESEXcgE?t=680). Favorite lines in the movie were "hot dog" and "golly". Lots of memorable scenes - the lightbulbs crunching on the red carpet, Hughes' film projected onto his body, Hughes meets the Hepburns. Ben Wyatt and Galvin Belson have cameos in the movie.
 1. Breakfast at Tiffany's - 8/10. I wanted to see this movie after watching the opening scene. I like that the movie has a theme (Moon River), that is played throughout. Audrey Hepburn had a standout performance. The first movie I watched from her was Roman Holiday - her character in both movies are quite similar. I want to see some more of her work. These aren't my words but there was a great job capturing the bohemian lifestyle of New York in the time. This is a pretty good rom com.
@@ -147,6 +148,7 @@
 6s are 5s with some redeeming qualities. Mad Max has great set design but the plot was poor so it wasn't that engaging to watch. TGTBTU has a spectacular end but is otherwise long and uninteresting. Snowpiercer is ruined by its ending. Harold and Kumar is funny but Bad
 5s are barely enjoyable films. After the movie, I think to myself "by the slightest margin, that was more enjoyable than being on reddit or youtube for the past two hours"
 
+1. Jojo Rabbit - 7.5/10. Cute movie that reminded me of the Grand Budapest Hotel. I was doing work in parallel so I didn't pay full attention to the movie. Most of the characters were charming. ScarJo was very good. The Nazi guy was cool and his end was very sad. Jojo was well acted and his fat friend came in at funny times. I wasn't a huge fan of the Jewish girl.
 1. The Tree of Life - 7.1/10. Watched about half of this movie with Horace before we went to sleep. I guess it's an ambitious film, but honestly it's really confusing. The premise is simple enough - an adult reflecting on his memories to figure out why he is who he is. I didn't understand that until reading explainations of the film. A lot of confusing sequences (the Big Bang up until dinosaurs etc.) Ending of the movie was meh. Brad Pitt did a nice job as a stern father and they built up his character well. I did like how they depicted the life of a surburban kid's upbringing, it does remind me of mine, and I recognize that that is hard to do.
 1. Spiderman: into the Spiderverse - 7+/10. It's a cute movie. Stylistically, it's interesting. The animation is well done and the soundtrack deserves recognition but the plot wasn't particularly interesting. Perhaps I would have been more engaged if I knew the villains, rather Octo lady was just a villain like any other and didn't particularly pull me in. The anime, noir, and porky spider men were cool. A lot of this movie is good, but because I didn't enjoy it that much, it remains in C tier.
 1. A Star is Born - 7/10. I watched this movie for the plot, so I actually skipped all the scenes where they scene, even the last one, (except for Shallow). I'm glad he died at the end, made sense.
@@ -175,6 +177,7 @@
 1. Harold and Kumar go to White Castle - 6/10. This is difficult to rate because it's the first movie that's "so bad, it's good". It's a funny movie with more character development than 1917.
 1. 1917 - 6/10. There were a few cool shots like the waterfall scene. I felt scammed when the pudgy boy died thirty minutes into the movie. Overall, the one-shot limit made the movie feel super slow. Espeically in the beginning where all they do is walk. The ending was also quite lackluster. He gets a "fuck-off" and has a "emotional" moment with the brother. I wasn't particularly moved. After this movie and Dunkirk, I think it's possible that I just don't like war movies very much. WW1 also seems less interesting to me than WW2.
 1. The Fountain - 6/10. Cool visuals and good soundtrack, but otherwise a budget Cloud Atlas
+1. The Two Popes - 6/10. The movie was cute but a bit cliche. The popes felt one dimensional. Classic leader who doesn't want to lead trope.
 1. The Maltese Falcon - 5.5/10. This is really a review of Chinatown. The beginnings of both movies are incredibly similar. The femme fatale comes in and hires our protagonist. She is mysterious and arouses suspicion We are introduced to a character who dies a few scenes later. Our PI falls in love with the femme fatale. Okay, if this is the first "noir film", then a lot of progress was made in 30 years. In Chinatown, we follow the PI and see the same clues that he sees. In Falcon, the clues are mainly revealed by people - there's nothing for me to figure out at any point and I feel like a spectator. The romance in the movie feels so strange/forced. I didn't really understand that they were in love with each other; I thought Sam was just a womanizer. They profess their love for each other at the end, where the fuck did that come from?? Now I see the spin on the femme fatale from Chinatown. Sam has some really clever scenes where he "Harvey Spectre"'s everyone else. Not a good film in isolation, but it made me appreciate Chinatown much more.
 1. Frozen 2 - 5.5/10. Honestly, I'll watch any Frozen sequel, I like the characters (Anna) enough. Character development kinda sucked though. Olaf is in some philosophical phase that doesn't make too much sense to me. He keeps talking about change... who is the target audience here? The kids that watched Frozen that are older now? There was a decent amount of expoisition to say that everyone is a few years older now (Oh I see the first movie came out six years ago so the Frozen universe is in real time.) That's actually pretty cool. I think something similar goes in in HTTYD and the Before Trilogy and it works out well. Anna... I really wish she got some powers. There was some plot points about her being powerless so I thought she would have some kind of magic. Instead she becomes the queen. Honestly that was a big twist for me - should she really be queen...? Kristoff has the stupidest arc, he's basically a blubbering idiot the entire movie. I couldn't believe what I was watching when I saw his solo song. It felt so out of place in Frozen. Elsa makes negative progress as a person? We dedicated an entire movie to her not shutting others out and she does it again (not in a redeeming way either, she does it towards the end!) Plot wasn't great either. Who is the person singing? There was so much anticipation for it but I left that scene confused. Was it their dead mother? Was it Elsa the entire time? Why did Elsa freeze? What happened to the parents? This was a man vs nature type movie which is unique, I suppose. The film itself is also a lot darker than the first, both in color and mood. As an aside, the Into the Unknown melody is basically [this](https://youtu.be/zr18GgCvVQs?t=155). The music was not amazing. The mysterious melody did get stuck in my head though and it seems like "Into the Unknown" is suppose to be the flagship song (I'm basing this off the fact that Weezer and Panic! did covers of this song). I feel kinda snubbed with "Show Yourself" though. Who was it? The theme just doesn't have the same appeal as "Let it Go". The animation was absolutely amazing. I remember the Elsa running into the ocean scene from the trailer. The way that scene ends with her taming the horse is awesome. I enjoyed every scene with the water horse. The chameleon was ok as well but I wish it actually did something. The callbacks to Frozen 1 were good too - Olaf summarizing the plot and Elsa listening to herself sing Let it Go. This time around, I notice that Frozen has a top notch cast! Idina (Elsa) played Elphaba, Kristen Bell(Anna)... Well Eleanor from the Good Place which is top notch to me, Johnathan Groff (Kristoff) is King George in Hamilton and Jon Gadd (Olaf) is Elder Cunningham in Book of Mormon. These are big names in the musical world!
 1. The Wandering Earth - 5.5/10. Ambitious movie and I like end of the world movies which is why it's this high. However, I don't like the changing of plans. Feels Deus Ex Machina
@@ -191,7 +194,7 @@
 ---
 
 ### F tier - did not enjoy <4/10
-These movies suuuuuuuuuuuuuuuuuuuck 
+These movies suuuuuuuuuuuuuuuuuuuck
 
 1. Annie Hall - 4/10.
 1. The Lion King - 4/10. I'm not a huge fan of this movie in the first place and the live action remake was even worse. The characters don't show any emotion through their faces and animals talking in english is weirder when they look realistic. Kid Simba was cocky and annoying. Adolescent Simba was totally nihilistic and still annoying. The animation was pretty cool, looked like animal planet. Yeah, I also just find the story stupid, not really inspiring.
@@ -209,11 +212,11 @@ These movies suuuuuuuuuuuuuuuuuuuck
 1. **Harry Met Sally**: One of the first movies that I saw where I never really felt bored, didn't see big flaws in any part of the movie, and at multiple moments in the film was incredibly impressed with the framing of the shots. The way that it's cut with interviews with couples threw me off a bit first, but ended up being really charming as well.
 1. **Parasite**: As a movie, I think it should be enjoyed without much knowledge
 about it going in. Beyond being captivating from start to finish, I found
-Parasite to showcase great set design and cinematography, especially in the 
-scene in the middle of the movie with the coughing housekeeper. For a decent 
-chunk of the movie, I forgot that I was watching a foreign film, but knowledge 
-of Korean culture certainly seems to elevate it further. Another great movie. 
-Unsure about whether to put this above or below Parasite, so I'll put it below 
+Parasite to showcase great set design and cinematography, especially in the
+scene in the middle of the movie with the coughing housekeeper. For a decent
+chunk of the movie, I forgot that I was watching a foreign film, but knowledge
+of Korean culture certainly seems to elevate it further. Another great movie.
+Unsure about whether to put this above or below Parasite, so I'll put it below
 for now. I will probably watch Snowpiercer and The Host because of it.
 
 **A (9/10)**
@@ -228,11 +231,11 @@ for now. I will probably watch Snowpiercer and The Host because of it.
 1. **Avengers: End Game**: Actually kind of similar to The Aviator, in that nothing in particular was terrible but it dragged on. Also, time travel sucks and moments felt like pandering. Not just the women charging scene, which was really dumb, but also lots of moments where Captain America did cool things and various power level imbalances (why didn't Captain Marvel do more?).
 1. **Coherence**
 1. **Chinatown**: My movie rankings are not based on historical impact or cultural significance, which would move Chinatown up the list. While I enjoyed the movie's numerous trope reversals and the continual references to what could have been throwaway moments in the first act, I thought that the movie demanded too much of the viewer. Part of the problem may have come from simply confusing the characters with each other. In terms of technical aspects such as lighting or Nicholson and Huston's performances, the movie was impressive as well. I could see this movie rising in my rankings as I think about it more, but ultimately it was somewhat disappointing compared to expectations.
-1. **Ghost in the Shell**: I wish I could have enjoyed this movie more. I'm 
-certain that if I followed it up with delving deeper into the lore of the 
-various other adaptations that I would better appreciate the subtleties of this 
-film, but on its own it's fairly confusing. Still pretty enjoyable for an 
-animated film from over twenty years ago. 
+1. **Ghost in the Shell**: I wish I could have enjoyed this movie more. I'm
+certain that if I followed it up with delving deeper into the lore of the
+various other adaptations that I would better appreciate the subtleties of this
+film, but on its own it's fairly confusing. Still pretty enjoyable for an
+animated film from over twenty years ago.
 1. **The Greatest Showman**
 1. **Primer**
 1. **Before Sunrise**: A slow start, but then the last hour sped by and I forgot I was even watching a movie. I might have been biased by Zaibo's review but I did find that I desperately wanted to start the next movie to learn out more.
