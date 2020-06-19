@@ -28,7 +28,7 @@
 
 4/5 (Willing to rewatch if I'm in the mood)
 -----------------------------
-1. **Arrival**
+12. **Arrival**
 1. **Three Billboards Outside Ebbing, Missouri**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
@@ -46,8 +46,9 @@
 1. **The Departed**: The best film about lying I've ever seen. The premise originally stuck out to me as something I'd like, but I had no idea how far they could run with this premise. If you've pretended to be someone else for so long that nobody knows you're pretending, what's the difference? Besides the incredible amounts of intrigue packed into the movie, I find the casting to be phenomenal. DiCaprio and Damon both fit perfectly into their roles, and oh wow, Marky Mark what a performance. Single handedly stole every scene he was in. I've seen some rag on Nicholson's performance, but I haven't seen enough of them to find them cliched so I simply found them very ... evocative. One thing I find interesting is simply how many A-list actors found themselves in this movie. Perhaps that's why every discussion I've seen about this movie just uses the actor's names instead of the character's names. Perhaps that's another level of "pretending to be someone else you're not". As a side note, I'm not sure how many of the meta-levels of this concept fans have analyzed into the film. Ie: Is Damon impotent? Is Nicholson impotent? Is Damon gay? Is Nicholson gay? etc.
 1. **Se7en**: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
 1. **Moonrise Kingdom**
+1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent allocation is really quite tragic, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
 1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but I tend to like his other films more.
-1. **Mulholland Drive**
+1. **Mulholland Drive** 
 1. **Cloud Atlas**
 1. **Pulp Fiction**
 1. **Amélie**: The purest embodiment of happiness I've seen in a movie.
@@ -63,6 +64,7 @@
 1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**
+1. **21 Jump Street**
 1. **The Truman Show**
 1. **Do the Right Thing**
 1. **Dr. Strangelove**
@@ -72,6 +74,7 @@
 1. **Coherence**: Less mind-bending than Primer, but a more likable character arc. Ending seemed like a bit of a cheap twist.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
+1. **This is Spinal Tap**: Some funny scenes - just didn't stand out that much to me.
 1. **1917**: Considering I didn't really like Dunkirk that much either, maybe I just don't like war movies... I just found this movie to be somewhat bland and boring. The dialogue was just somewhat boring, the plot points were pretty repeatable, and I found the Benedict Cumberbatch cameo to actually be somewhat comedic - perhaps because it was immersion breaking. The one-take gimmick didn't really add much to my experience - at some point, I actively groaned that the one take gimmick would require the actors to actually traverse several miles. Overall, very low emotional impact, some technically impressive shots - not a movie I would like to watch again.
 1. **Aladdin**: This was better than I expected. Unlike the other Disney remakes, I felt that this one had an unique heart to it. Contrary to what people may have thought from the trailers, I thought Will Smith did a phenomenal job - he was the best part of this movie by a significant margin. The emphasized role of Princess Jasmine was pretty interesting, and although I found her role to be fairly shallow (and the video was hilarious), I liked the new song.
 1. **The Wandering Earth**: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for.
