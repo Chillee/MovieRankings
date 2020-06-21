@@ -4,6 +4,8 @@
 
 [Zaibo's Also Globally Ordered Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#zbobo-p)
 
+[Qian's "Real Comedy" Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#horace)
+
 [Kevin's Fledgling Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#kevin)
 
 [Isay's Questionable Rankings](https://github.com/Chillee/MovieRankings/blob/master/README.md#isay)
@@ -225,6 +227,22 @@ These movies suuuuuuuuuuuuuuuuuuuck
 1. Under The Skin (unfinished) 0/10 - This movie suuuuuuuuuucked!
 1. My Neighbor Totoro (unfinished) 0/10 - I guess I don't really like kids movies. I didn't really get the conflict and didn't feel compelled to finish the movie so it suuuuuuuucked.
 
+## Qian
+
+### Real Comedies
+1. Tropic Thunder
+1. 22 Jump Street
+1. 21 Jump Street
+1. Anchorman
+1. Mean Girls
+
+### Not Comedies >:(
+1. This is Spinal Tap
+1. Airplane
+1. Monty Python and the Holy Grail
+1. The Big Lebowski
+1. In Bruges
+
 
 ## Kevin
 
@@ -314,6 +332,8 @@ animated film from over twenty years ago.
 ## Ozer
 
 Tbh I was probably playing Monkey Ball during most of these :(
+
+
 
 ## Queue
 
