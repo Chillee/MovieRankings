@@ -233,6 +233,7 @@ These movies suuuuuuuuuuuuuuuuuuuck
 1. Tropic Thunder
 1. 22 Jump Street
 1. 21 Jump Street
+1. Hot Fuzz
 1. Anchorman
 1. Mean Girls
 
