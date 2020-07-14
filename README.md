@@ -42,6 +42,7 @@
 1. **Ford V Ferrari**: The second race in the movie is unbelievable. Overall, good to great performances from Christian Bale and Matt Damon, a solid autobiographical script, and some standout action moments make for a very enjoyable movie.
 1. **Baby Driver (rewatch)**: Plotwise, nothing special. One could likely have guessed much of it just from knowing the premise of the movie. Still, the movie manages to be entertaining partially due to stellar acting performances (particularly Jon Hamm's). However, where the movie peaks is when it starts to blend music and action (much of the cuts/movements/things that happen are synced with the music). The "Never Gonna Give You Up" scene in the diner is the pinnacle of this ideal, and in particular, the moment Buddy starts to sing the words of the song. Very fun movie, and massively entertaining.
 1. **Marriage Story**
+1. **Jojo Rabbit**
 1. **Shawshank Redemption**: Loved the quote "get busy living, or get busy dying" before I even watched the movie, and the context only made it better. However, I'm somewhat disappointed with this film. Not because I disliked it - I thought it was a great film! The list of films in contention for the best movie of all time is short. Unluckily, after watching it, I'm worried that Shawshank finds its way onto this list not due its spectacular highs but due to its consistency. Most people who watch this film will consider it a great film; I doubt many people will consider it *the* greatest film.
 1. **Life is Beautiful**: This movie is a pretty good rom-com mashed with an excellent holocaust-comedy (if that's a genre...). While the first half does an excellent job of characterization, the true heart of this film lies in the second half, and in particular, the ending. To be honest, despite the ending not being some kind of wild twist, the final scene affected me more than I expected.
 1. **Hero**: Some critics of this film call it Chinese propaganda. I don't see it. Not moreso than any American military or anti-terrorist film. Sacrificing one's own life for the greater good isn't a new idea. Nor is it an especially China-centric one. I personally felt that the sacrifices and decisions made by the characters in this movie were meaningful. Other than the messages of the movie, the movie is objectively beautifully shot. The usage of color themes is visually striking, and there are many visual shots/styles that I don't see present in western films.
@@ -64,7 +65,8 @@
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
-32. **Joker**
+32. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street under the right circumstances.
+1. **Joker**
 1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**
