@@ -54,7 +54,7 @@
 1. **Moonrise Kingdom**
 1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent allocation is really quite tragic, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
 1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but I tend to like his other films more.
-1. **Mulholland Drive** 
+1. **Mulholland Drive**
 1. **Cloud Atlas**
 1. **Pulp Fiction**
 1. **Amélie**: The purest embodiment of happiness I've seen in a movie.
