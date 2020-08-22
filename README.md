@@ -52,15 +52,17 @@
 1. **The Departed**: The best film about lying I've ever seen. The premise originally stuck out to me as something I'd like, but I had no idea how far they could run with this premise. If you've pretended to be someone else for so long that nobody knows you're pretending, what's the difference? Besides the incredible amounts of intrigue packed into the movie, I find the casting to be phenomenal. DiCaprio and Damon both fit perfectly into their roles, and oh wow, Marky Mark what a performance. Single handedly stole every scene he was in. I've seen some rag on Nicholson's performance, but I haven't seen enough of them to find them cliched so I simply found them very ... evocative. One thing I find interesting is simply how many A-list actors found themselves in this movie. Perhaps that's why every discussion I've seen about this movie just uses the actor's names instead of the character's names. Perhaps that's another level of "pretending to be someone else you're not". As a side note, I'm not sure how many of the meta-levels of this concept fans have analyzed into the film. Ie: Is Damon impotent? Is Nicholson impotent? Is Damon gay? Is Nicholson gay? etc.
 1. **Se7en**: In some ways, the opposite of Interstellar. I watched both movies back to back on a flight. While Interstellar is a movie with great moments that's nearly ruined by the ending, Se7en is an adequate movie that's elevated to greatness by **its** 3rd act. I've heard some people say they thought the movie would still have been great without its 3rd act, and I disagree. The rest of the film was enjoyable enough, with the unique crimes and the budding relationship between Somerset and Mills, but it's the 3rd act of the film that cements this movie's place as a classic. Imagine how much less interesting the movie would have been if the villain had been your classic baddie and the movie ended with a chase sequence and shoot-out. No, the 3rd act ties the movie together and makes the film.
 1. **Moonrise Kingdom**
-1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent allocation is really quite tragic, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
-1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but I tend to like his other films more.
-1. **Mulholland Drive**
+1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent distribution is one of great existential tragedies, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
+1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but like his other films more.
 1. **Cloud Atlas**
 1. **Pulp Fiction**
 1. **Amélie**: The purest embodiment of happiness I've seen in a movie.
 1. **The Aviator**
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
+1. **Paddington 1**: Not nearly as good as Paddington 2 (which is essentially perfection), but still a pretty great kids movie.
+1. **Mulholland Drive**: Perhaps I would enjoy this movie more if I understood it better. However, there were several standout scenes for me - the 2 scenes involving "Every Little Star" and "16 Reasons Why" were fantastic. Also, I feel like this movie has to be inspired by [Material Girl by Madonna](https://www.youtube.com/watch?v=6p-lDYPR2P8) somehow - compare the beginning of the music video to the ["This is the girl" scene](https://www.youtube.com/watch?v=R_VEQI2nS48) from Mulholland Drive. Oh, also, Madonna's former house was on Mulholland Drive. Coincidence? I think not :)
+1. **Fantastic Mr. Fox**: A very interesting animation style. Not nearly as cute as Paddington, however - I also didn't particularly care for the storyline involving the kid.
 1. **Once Upon a Time in Hollywood**
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 
@@ -70,6 +72,7 @@
 1. **Joker**
 1. **Good Will Hunting**
 1. **Chinatown**
+1. **V for Vendetta**: Perhaps modern neckbeard culture and the hacker group Anonymous have made me too cynical of the imagery in this movie, but I found V to be somewhat ... cringy. He just felt a lot like a neckbeard. He loves swords, he says edgy things, he has a "iamverysmart" demeanor, and just reminds me of m'lady. My favorite scene, by far, was the scene with the dominoes. I guess I just love montages in general.
 1. **Spider Man: Far From Home**
 1. **21 Jump Street**
 1. **The Truman Show**
