@@ -55,6 +55,7 @@
 1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent distribution is one of great existential tragedies, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
 1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but like his other films more.
 1. **Cloud Atlas**
+1. **Les Misérables**
 1. **Pulp Fiction**
 1. **Amélie**: The purest embodiment of happiness I've seen in a movie.
 1. **The Aviator**
@@ -63,28 +64,30 @@
 1. **Paddington 1**: Not nearly as good as Paddington 2 (which is essentially perfection), but still a pretty great kids movie.
 1. **Mulholland Drive**: Perhaps I would enjoy this movie more if I understood it better. However, there were several standout scenes for me - the 2 scenes involving "Every Little Star" and "16 Reasons Why" were fantastic. Also, I feel like this movie has to be inspired by [Material Girl by Madonna](https://www.youtube.com/watch?v=6p-lDYPR2P8) somehow - compare the beginning of the music video to the ["This is the girl" scene](https://www.youtube.com/watch?v=R_VEQI2nS48) from Mulholland Drive. Oh, also, Madonna's former house was on Mulholland Drive. Coincidence? I think not :)
 1. **Fantastic Mr. Fox**: A very interesting animation style. Not nearly as cute as Paddington, however - I also didn't particularly care for the storyline involving the kid.
-1. **Once Upon a Time in Hollywood**
+1. **Big Fish & Begonia**
+1. **Once Upon a Time in Hollywood**: One of my least favorite Tarantino movies
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
 32. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street under the right circumstances.
-1. **Joker**
 1. **Good Will Hunting**
 1. **Chinatown**
-1. **V for Vendetta**: Perhaps modern neckbeard culture and the hacker group Anonymous have made me too cynical of the imagery in this movie, but I found V to be somewhat ... cringy. He just felt a lot like a neckbeard. He loves swords, he says edgy things, he has a "iamverysmart" demeanor, and just reminds me of m'lady. My favorite scene, by far, was the scene with the dominoes. I guess I just love montages in general.
 1. **Spider Man: Far From Home**
 1. **21 Jump Street**
 1. **The Truman Show**
 1. **Do the Right Thing**
 1. **Dr. Strangelove**
+1. **V for Vendetta**: Perhaps modern neckbeard culture and the hacker group Anonymous have made me too cynical of the imagery in this movie, but I found V to be somewhat ... cringy. He just felt a lot like a neckbeard. He loves swords, he says edgy things, he has a "iamverysmart" demeanor, and just reminds me of m'lady. My favorite scene, by far, was the scene with the dominoes. I guess I just love montages in general.
 1. **Dunkirk**
 1. **Sunshine**: Very much like a worse interstellar, in more ways than one. Just like Interstellar, this movie has some incredible highs (or maybe I'm just a sucker for epic space moments), like [this one (SPOILER)](https://www.youtube.com/watch?v=hR69EKvcW-4). Actually, I'm probably even more of a sucker for epic music paired with movie scenes ("Captain Kaneda, what do you see?"). Another thing this movie did really well was the portrayal of the Sun (and the accompanying brightness) as horror, as opposed to the typical dark = horror associations. The religious overtones around the portrayal of the sun also lent a lot of intrigue to the film. HOWEVER, the latter third of this movie fell flat for me. The movie shifted the "enemy" from the environment to a personification of the environment in a way that lost much of the intrigue that had been built up. It felt more like a B-movie slasher flick than anything else. Interstellar had something similar, but whereas I thought Dr. Mann was one of the best parts of interstellar, the villian in Sunshine was mostly boring. Oh also, re: the soundtrack - I originally was slightly taken out of the scene I linked above because I thought that they were reusing a track from a different film (which felt somewhat ... cheap). But actually, [this song](https://www.youtube.com/watch?v=G1c2KpurNWo) was written for this film :O.
+1. **Joker**: I think this movie gets too much credence for being a "non-trivial" superhero film. I find it a bit too derivative of Taxi Driver, and the ending sequence felt like a really cheap tie in to Batman. On the other hand, there were some pretty great monologues and scenes in this film - Joaquin Phoenix deserved his Oscar.
 1. **The King's Speech**: Fairly solid, but ultimately forgettable. It's criminal that this won Best Picture over The Social Network.
 1. **Coherence**: Less mind-bending than Primer, but a more likable character arc. Ending seemed like a bit of a cheap twist.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
 1. **This is Spinal Tap**: Some funny scenes - just didn't stand out that much to me.
+1. **The Greatest Showman**: I'm a bit of a sucker for musicals - I enjoyed some of the music in this film, along with the choreography (particularly the silks/trapeze part). However, the overall plot felt pretty disjointed and the music didn't integrate that well with the movie.
 1. **1917**: Considering I didn't really like Dunkirk that much either, maybe I just don't like war movies... I just found this movie to be somewhat bland and boring. The dialogue was just somewhat boring, the plot points were pretty repeatable, and I found the Benedict Cumberbatch cameo to actually be somewhat comedic - perhaps because it was immersion breaking. The one-take gimmick didn't really add much to my experience - at some point, I actively groaned that the one take gimmick would require the actors to actually traverse several miles. Overall, very low emotional impact, some technically impressive shots - not a movie I would like to watch again.
 1. **Aladdin**: This was better than I expected. Unlike the other Disney remakes, I felt that this one had an unique heart to it. Contrary to what people may have thought from the trailers, I thought Will Smith did a phenomenal job - he was the best part of this movie by a significant margin. The emphasized role of Princess Jasmine was pretty interesting, and although I found her role to be fairly shallow (and the video was hilarious), I liked the new song.
 1. **The Wandering Earth**: Watched on poor quality, halved FPS, and with a bunch of overlayed text floating around, which probably detracted from the experience. Ambitious film with some great moments (an archetype I like), I thought the final "plan" was well done. However, suffers from somewhat formulaic action sequences and some characters I didn't really care for.
