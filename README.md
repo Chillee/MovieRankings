@@ -23,12 +23,12 @@
 1. **Children of Men**
 1. **Drive**
 1. **The Fighter**
-1. **The Good the Bad and the Ugly (rewatch)**
+1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids.
+1. **The Good the Bad and the Ugly (rewatch)**: To some extent, this movie is largely carried by the soundtrack. It's not carried like a musical is, but the best moment by a mile is The Trio. The rest of the movie is fairly enjoyable, with plenty of standout comedic moments (particularly the whole dynamic between the Good and the Ugly). However, if it weren't for the musical moments, this movie wouldn't find its way into S tier.
 1. **In Bruges**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception.
 1. **Gone Girl**: A very romantic love story :)
 1. **Nightcrawler**: It's criminal that Jake Gyllenhaal didn't get nominated as best actor for this film. Overall, the film dives into a very interesting niche of media that I don't really think about much. It's best seen as a darkly satirical take on a classic American success story seen through the eyes of a twisted optimist.
-1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids.
 
 4/5 (Willing to rewatch if I'm in the mood)
 -----------------------------
