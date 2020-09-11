@@ -25,6 +25,7 @@
 1. **The Fighter**
 1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids.
 1. **The Good the Bad and the Ugly (rewatch)**: To some extent, this movie is largely carried by the soundtrack. It's not carried like a musical is, but the best moment by a mile is The Trio. The rest of the movie is fairly enjoyable, with plenty of standout comedic moments (particularly the whole dynamic between the Good and the Ugly). However, if it weren't for the musical moments, this movie wouldn't find its way into S tier.
+1. **Arrival**
 1. **In Bruges**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception.
 1. **Gone Girl**: A very romantic love story :)
@@ -32,8 +33,7 @@
 
 4/5 (Willing to rewatch if I'm in the mood)
 -----------------------------
-12. **Arrival**
-1. **Three Billboards Outside Ebbing, Missouri**
+12. **Three Billboards Outside Ebbing, Missouri**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
 1. **Interstellar**: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina"(much worse than the beginning) that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list. Also, this is [very funny](https://www.youtube.com/watch?v=1Zn958rN-H4)
