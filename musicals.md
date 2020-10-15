@@ -1,12 +1,13 @@
 ## Horace's Musical Rankings
 
-1. Hamilton
-1. Les Miserables
-1. The Sound of Music
-1. Wicked
-1. Singing in the Rain
-1. Sweeney Todd
-1. Into the Woods
+1. Hamilton (Live, Recording, Soundtrack)
+1. Les Miserables (Movie, Soundtrack)
+1. The Sound of Music (Movie)
+1. Wicked (Live, Soundtrack)
+1. Book of Mormon (Soundtrack)
+1. Singing in the Rain (Movie)
+1. Sweeney Todd (Movie, Soundtrack)
+1. Into the Woods (Movie, Soundtrack)
 
 
 ## Zaibo's Musical Rankings
