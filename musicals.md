@@ -1,3 +1,14 @@
+## Horace's Musical Rankings
+
+1. Hamilton
+1. Les Miserables
+1. The Sound of Music
+1. Wicked
+1. Singing in the Rain
+1. Sweeney Todd
+1. Into the Woods
+
+
 ## Zaibo's Musical Rankings
 
 My rating for a musical changes over the weeks after seeing the musical live. Since I haven't seen a musica live, my memory of musicals is somewhat distorted because the "extras" footage I see on youtube such as backstage videos are a different cast.
