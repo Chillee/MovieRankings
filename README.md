@@ -71,12 +71,13 @@
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
-49. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street under the right circumstances.
+49. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street.
 1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**
 1. **21 Jump Street**
 1. **The Truman Show**
+1. **Tenet**: Perhaps I just don't understand this movie - specifically, the fundamentals of how the physics works. How does a forward person fight against an inverted person? Like, let's say the forward and inverted people try to push against each other. Is that possible? How does it work?
 1. **Do the Right Thing**
 1. **Dr. Strangelove**
 1. **V for Vendetta**: Perhaps modern neckbeard culture and the hacker group Anonymous have made me too cynical of the imagery in this movie, but I found V to be somewhat ... cringy. He just felt a lot like a neckbeard. He loves swords, he says edgy things, he has a "iamverysmart" demeanor, and just reminds me of m'lady. My favorite scene, by far, was the scene with the dominoes. I guess I just love montages in general.
