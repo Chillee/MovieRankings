@@ -65,14 +65,15 @@
 1. **Paddington 1**: Not nearly as good as Paddington 2 (which is essentially perfection), but still a pretty great kids movie.
 1. **Mulholland Drive**: Perhaps I would enjoy this movie more if I understood it better. However, there were several standout scenes for me - the 2 scenes involving "Every Little Star" and "16 Reasons Why" were fantastic. Also, I feel like this movie has to be inspired by [Material Girl by Madonna](https://www.youtube.com/watch?v=6p-lDYPR2P8) somehow - compare the beginning of the music video to the ["This is the girl" scene](https://www.youtube.com/watch?v=R_VEQI2nS48) from Mulholland Drive. Oh, also, Madonna's former house was on Mulholland Drive. Coincidence? I think not :)
 1. **Fantastic Mr. Fox**: A very interesting animation style. Not nearly as cute as Paddington, however - I also didn't particularly care for the storyline involving the kid.
-1. **Big Fish & Begonia**: Perhaps best summed up as a more ambitious but less polished Studio Ghibli movie. Also, it's from China. Considering that this is the country where [Boonie Bears](https://www.youtube.com/watch?v=kHXwdv_fZAk) holds 6 of the top 11 top grossing animated movies, I think this is a remarkable step up, and hopefully demonstrates that there's a market for quality animation. The movie is mostly hand-drawn (and quite nicely), but there were a couple of uses of 3d animation that were remarkably jarring. Not only did the graphics look different, I think they also ran at a different frame rate. Absolutely bizarre choice.
+1. **Spotlight**: Great movie, loved the dialogue, and loved the overall plot. However, the movie perhaps suffered from a lack of characters to care about, with one of the only standouts (Mark Ruffalo near the end of the movie) being the highlight of the movie by far. It's not to say that there weren't plenty of emotional moments, but they mostly didn't die together into a whole greater than the sum of its parts.
+1. **Big Fish & Begonia**: Perhaps best summed up as a more ambitious but less polished Studio Ghibli movie. Also, it's from China. Considering that this is the country where [Boonie Bears](https://www.youtube.com/watch?v=kHXwdv_fZAk) holds 6 of the top 11 top grossing animated movies, I think this is a remarkable step up, and hopefully demonstrates that there's a market for quality animation. The movie is mostly hand-drawn (and quite nicely), but there were a couple of uses of 3d animation that were absoutely jarring. Not only did the graphics look different, I think they also ran at a different frame rate. Absolutely bizarre choice.
+1. **Good Will Hunting**
 1. **Once Upon a Time in Hollywood**: One of my least favorite Tarantino movies
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
 49. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street.
-1. **Good Will Hunting**
 1. **Chinatown**
 1. **Spider Man: Far From Home**
 1. **21 Jump Street**
@@ -103,6 +104,7 @@
 2/5 (Don't see the point of rewatching)
 --------------------------------
 74. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
+1. **Clue**: So so so much worse than Knives Out. It's like Knives Out, but without any of the likable characters, or any of the interesting plot twists. I did find the "3 endings" thing interesting though, but I wonder if that hurt the quality of the plot twists.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie.
 1. **Alien**: I feel like this is a movie whose age really detracts from the viewing experience of the film. There were several scenes where the CGI was immersion breaking - in particular, [the scene where the alien is blasted out of the spaceship](https://www.youtube.com/watch?v=U-mmbStFrAA&t=51s). It was difficult for me to take these scenes seriously. I thought the plot was decent, and so was the world building, but the outdated effects took away from a lot of the horror of this film.
@@ -386,7 +388,8 @@ Tbh I was probably playing Monkey Ball during most of these :(
 1. Ameli
 1. Carlisle
 1. Happiness
-
+1. WallStreet
+1. Bird Box
 
 10/14
 1. The Third Man
