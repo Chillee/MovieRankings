@@ -1,15 +1,12 @@
 ## Horace's Musical Rankings
 
 1. Hamilton (Live, Recording, Soundtrack)
-1. Les Miserables (Movie, Soundtrack)
-  -  Favorite Recording: 10th Anniversary Concert
+1. Les Miserables (Movie, Soundtrack) -Favorite Recording: 10th Anniversary Concert
 1. Wicked (Live, Soundtrack)
 1. The Sound of Music (Movie)
-1. Jesus Christ Superstar (Movie, Soundtrack)
-  - Favorite Recording: Mix of 1996 London Cast (remastered) and movie
+1. Jesus Christ Superstar (Movie, Soundtrack) - Favorite Recording: Mix of 1996 London Cast (remastered) and movie
 1. Hairspray (Movie, Soundtrack)
-1. Phantom of the Opera (Movie, Soundtrack)
-  - Favorite Recording: Live at the Royal Albert Hall
+1. Phantom of the Opera (Movie, Soundtrack) - Favorite Recording: Live at the Royal Albert Hall
 1. Book of Mormon (Soundtrack)
 1. Singing in the Rain (Movie)
 1. Sweeney Todd (Movie, Soundtrack)
