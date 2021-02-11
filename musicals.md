@@ -8,6 +8,7 @@
 1. Hairspray (Movie, Soundtrack)
 1. Phantom of the Opera (Movie, Soundtrack) - Favorite Recording: Live at the Royal Albert Hall
 1. Book of Mormon (Soundtrack)
+1. Dreamgirls (Movie)
 1. Singing in the Rain (Movie)
 1. Sweeney Todd (Movie, Soundtrack)
 1. Into the Woods (Movie, Soundtrack)
