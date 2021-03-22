@@ -31,6 +31,7 @@
 1. **Gone Girl**: A very romantic love story :)
 1. **Nightcrawler**: It's criminal that Jake Gyllenhaal didn't get nominated as best actor for this film. Overall, the film dives into a very interesting niche of media that I don't really think about much. It's best seen as a darkly satirical take on a classic American success story seen through the eyes of a twisted optimist.
 
+
 4/5 (Willing to rewatch if I'm in the mood)
 -----------------------------
 15. **Three Billboards Outside Ebbing, Missouri**
@@ -41,6 +42,7 @@
 1. **Synecdoche NY**: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
 1. **Being John Malkovich**: ????? I don't know what to say about this movie. I have a hard time imagining how the script writer pitched John Malkovich on this movie. One thing I thought was pretty interesting was how similar this movie was to Get Out. Both are about taking over anothers body, with some old white people secretly plotting behind the scenes. However, while Get Out is about the horror of being possessed, Being John Malkovich is about the possessors. Despite the comedy, the ending of Being John Malkovich is one of the darkest fates I've seen in any movie.
 1. **Ford V Ferrari**: The second race in the movie is unbelievable. Overall, good to great performances from Christian Bale and Matt Damon, a solid autobiographical script, and some standout action moments make for a very enjoyable movie.
+1. **Promising Young Woman**
 1. **Baby Driver (rewatch)**: Plotwise, nothing special. One could likely have guessed much of it just from knowing the premise of the movie. Still, the movie manages to be entertaining partially due to stellar acting performances (particularly Jon Hamm's). However, where the movie peaks is when it starts to blend music and action (much of the cuts/movements/things that happen are synced with the music). The "Never Gonna Give You Up" scene in the diner is the pinnacle of this ideal, and in particular, the moment Buddy starts to sing the words of the song. Very fun movie, and massively entertaining.
 1. **Marriage Story**
 1. **Jojo Rabbit**
