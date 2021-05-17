@@ -23,7 +23,7 @@
 1. **Children of Men**
 1. **Drive**
 1. **The Fighter**
-1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids.
+1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids. You could call it "The Dark Knight" of children's films.
 1. **The Good the Bad and the Ugly (rewatch)**: To some extent, this movie is largely carried by the soundtrack. It's not carried like a musical is, but the best moment by a mile is The Trio. The rest of the movie is fairly enjoyable, with plenty of standout comedic moments (particularly the whole dynamic between the Good and the Ugly). However, if it weren't for the musical moments, this movie wouldn't find its way into S tier.
 1. **Arrival**
 1. **In Bruges**
