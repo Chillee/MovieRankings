@@ -17,10 +17,10 @@
 5/5 (Willing to rewatch at any time)
 ----------------
 1. **Parasite**
-1. **Silence of the Lambs**
 1. **When Harry Met Sally**
 1. **Royal Tenenbaums**
 1. **Arrival**
+1. **Silence of the Lambs**
 1. **Children of Men**
 1. **Drive**
 1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids. You could call it "The Dark Knight" of children's films.
@@ -38,10 +38,10 @@
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **Three Billboards Outside Ebbing, Missouri**
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
-1. **Her**
 1. **Interstellar**: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina"(much worse than the beginning) that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list. Also, this is [very funny](https://www.youtube.com/watch?v=1Zn958rN-H4)
 1. **Knives Out**: A very accessible whodunnit that I enjoyed. It's nice to watch a relatively straightforward feel good movie - looking forward to Knives Out 2.
 1. **Synecdoche NY**: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
+1. **Her**
 1. **Being John Malkovich**: ????? I don't know what to say about this movie. I have a hard time imagining how the script writer pitched John Malkovich on this movie. One thing I thought was pretty interesting was how similar this movie was to Get Out. Both are about taking over anothers body, with some old white people secretly plotting behind the scenes. However, while Get Out is about the horror of being possessed, Being John Malkovich is about the possessors. Despite the comedy, the ending of Being John Malkovich is one of the darkest fates I've seen in any movie.
 1. **Ford V Ferrari**: The second race in the movie is unbelievable. Overall, good to great performances from Christian Bale and Matt Damon, a solid autobiographical script, and some standout action moments make for a very enjoyable movie.
 1. **Promising Young Woman**
