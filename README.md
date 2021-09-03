@@ -82,6 +82,7 @@
 1. **Good Will Hunting**
 1. **Once Upon a Time in Hollywood**: One of my least favorite Tarantino movies
 1. **Primer**: This movie's plot feels like an excuse to try and write an consistent set of rules for time travel and examine how far the mechanism can be taken without breaking the rules entirely. Although the characters definitely take a backseat to the time travel, the characters are smart enough to really explore the consequences of this time travel, resulting in plenty of drama. Definitely not a movie everyone will like, but if you like smart movies/movies where your mind gets blown, this is definitely worth a watch.
+1. **Free Guy**: Ryan Reynolds doing Ryan Reynolds things, some really funny action sequences, and a lot of gamer bait. I found this movie very enjoyable, although definitely not a flawless movie by any means.
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
