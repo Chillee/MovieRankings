@@ -16,7 +16,16 @@
 
 ## Zaibo's Musical Rankings
 
-My rating for a musical changes over the weeks after seeing the musical live. Since I haven't seen a musica live, my memory of musicals is somewhat distorted because the "extras" footage I see on youtube such as backstage videos are a different cast.
+My rating for a musical changes over the weeks after seeing the musical live. Since I haven't seen a musical live, my memory of musicals is somewhat distorted because the "extras" footage I see on youtube such as backstage videos are a different cast.
+
+### 1. Jesus Chris Superstar
+- Watched with Horace at BroadwaySF on 11/2
+- This affirms that the best way to see a musical is to see in person, watch the proshot and listen to the soundtrack, and finally see it again. This is the first time I've gone to a musical and knew the songs inside and out. I felt like I could sing along with the entire show.
+- It's great to hear the instruments live. They did a great job of emulating a full set of string instruments - I'm always surprised at how small yet effective a pit orchestra can be. Overall, the musicians were great - there was a crazy sax(?) solo which was obstructed from view. The electric guitar was also super cool and I'm happy that the the musicians are featured center stage.
+- The ensemble was the MVP. It was a lot bigger than I expected; in general, the cast was much bigger than most of the other musicals I've been to. There's something special about having 10-20 people sing the chorus. The dancing overall was also really entertaining.
+- Judas was pretty disappointing. He mic was too quiet and often times, the instrumentation covered the vocals. Coming in, I was most looking forward to Judas, but I found myself enjoying the Jesus/Mary songs a LOT more.
+- I was very impressed with Jesus. I enjoyed Gethesmane immensely and that was definitely the highlight of the show for me.
+- I enjoyed Mary in the musical much more than in the move. I thought the actor player her did a really great job. I didn't realize Mary had 4 songs, they weren't memorable in the movie version.
 
 ### 1. Book of Mormon
 - Watched with Jenny on Broadway, 06/17
