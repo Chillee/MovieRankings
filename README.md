@@ -88,6 +88,7 @@
 -----------------------------------
 49. **22 Jump Street**: Despite this category's name, I probably would rewatch 22 Jump Street.
 1. **Chinatown**
+1. **First Man**
 1. **Spider Man: Far From Home**
 1. **In the Heights**
 1. **21 Jump Street**
@@ -101,6 +102,7 @@
 1. **Dunkirk**
 1. **Sunshine**: Very much like a worse interstellar, in more ways than one. Just like Interstellar, this movie has some incredible highs (or maybe I'm just a sucker for epic space moments), like [this one (SPOILER)](https://www.youtube.com/watch?v=hR69EKvcW-4). Actually, I'm probably even more of a sucker for epic music paired with movie scenes ("Captain Kaneda, what do you see?"). Another thing this movie did really well was the portrayal of the Sun (and the accompanying brightness) as horror, as opposed to the typical dark = horror associations. The religious overtones around the portrayal of the sun also lent a lot of intrigue to the film. HOWEVER, the latter third of this movie fell flat for me. The movie shifted the "enemy" from the environment to a personification of the environment in a way that lost much of the intrigue that had been built up. It felt more like a B-movie slasher flick than anything else. Interstellar had something similar, but whereas I thought Dr. Mann was one of the best parts of interstellar, the villian in Sunshine was mostly boring. Oh also, re: the soundtrack - I originally was slightly taken out of the scene I linked above because I thought that they were reusing a track from a different film (which felt somewhat ... cheap). But actually, [this song](https://www.youtube.com/watch?v=G1c2KpurNWo) was written for this film :O.
 1. **Roma**
+1. **Rashomon**
 1. **Kung Fu Hustle**
 1. **Joker**: This movie gets too much credence for being a "non-trivial" superhero film. I find it quite derivative of Taxi Driver, and the ending sequence felt like a really cheap tie in to Batman. On the other hand, there were some pretty great monologues and scenes in this film - Joaquin Phoenix deserved his Oscar.
 1. **The King's Speech**: Fairly solid, but ultimately forgettable. It's criminal that this won Best Picture over The Social Network.
