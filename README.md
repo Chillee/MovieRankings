@@ -17,6 +17,7 @@
 5/5 (Willing to rewatch at any time)
 ----------------
 1. **Parasite**
+1. **Everything Everywhere All at Once**
 1. **When Harry Met Sally**
 1. **Royal Tenenbaums**
 1. **Arrival**
