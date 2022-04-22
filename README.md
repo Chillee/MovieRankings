@@ -45,7 +45,6 @@
 1. **Her**
 1. **Being John Malkovich**: ????? I don't know what to say about this movie. I have a hard time imagining how the script writer pitched John Malkovich on this movie. One thing I thought was pretty interesting was how similar this movie was to Get Out. Both are about taking over anothers body, with some old white people secretly plotting behind the scenes. However, while Get Out is about the horror of being possessed, Being John Malkovich is about the possessors. Despite the comedy, the ending of Being John Malkovich is one of the darkest fates I've seen in any movie.
 1. **Ford V Ferrari**: The second race in the movie is unbelievable. Overall, good to great performances from Christian Bale and Matt Damon, a solid autobiographical script, and some standout action moments make for a very enjoyable movie.
-1. **Promising Young Woman**
 1. **Baby Driver (rewatch)**: Plotwise, nothing special. One could likely have guessed much of it just from knowing the premise of the movie. Still, the movie manages to be entertaining partially due to stellar acting performances (particularly Jon Hamm's). However, where the movie peaks is when it starts to blend music and action (much of the cuts/movements/things that happen are synced with the music). The "Never Gonna Give You Up" scene in the diner is the pinnacle of this ideal, and in particular, the moment Buddy starts to sing the words of the song. Very fun movie, and massively entertaining.
 1. **Marriage Story**
 1. **Jojo Rabbit**
@@ -71,6 +70,7 @@
 1. **The Aviator**
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
+1. **Promising Young Woman**
 1. **Paddington 1**: Not nearly as good as Paddington 2 (which is essentially perfection), but still a pretty great kids movie.
 1. **Mulholland Drive**: Perhaps I would enjoy this movie more if I understood it better. However, there were several standout scenes for me - the 2 scenes involving "Every Little Star" and "16 Reasons Why" were fantastic. Also, I feel like this movie has to be inspired by [Material Girl by Madonna](https://www.youtube.com/watch?v=6p-lDYPR2P8) somehow - compare the beginning of the music video to the ["This is the girl" scene](https://www.youtube.com/watch?v=R_VEQI2nS48) from Mulholland Drive. Oh, also, Madonna's former house was on Mulholland Drive. Coincidence? I think not :)
 1. **Fantastic Mr. Fox**: A very interesting animation style. Not nearly as cute as Paddington, however - I also didn't particularly care for the storyline involving the kid.
