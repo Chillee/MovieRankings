@@ -49,6 +49,7 @@ _feel_ like an animated cartoon. All the goofy actions and synced up with the ca
 - I really liked the plot, which is a rare compliment for me to give. Up until the end, I really wasn't sure how things were going to turn out? Maybe in this rendition, Orpheus actually escapes? Nope! The moment where Orpheus looked back really caught me off guard. The musical quickly shuts that down with the message that it's a timeless tale that we want to see again and again, even if we know how it ends. Hermes gave a fantastic performance of the Road to Hell (Reprise). Really emotional moment.
 - The tall fate with the tamboruine was a great cast. She looked exactly like how I'd expect a fate to look.
 - I liked the plot point that Hades is moved by Orpheus' song, but he has trouble deciding how to proceed. It appears that this part deviates from the original myth where Persephone decides they can go. 
+- We had front row seats, but it's clear that a few rows back would have been much better. We were getting seriously fogged up and subsequently blinded by the lights. In "Wait for Me", we were looking up at the lamps so we somewhat missed out on the choreography. This show would have been better to see on the mezz.
 
 ### 1. Book of Mormon
 - Watched with Jenny on Broadway, 06/17 (my first live musical!)
@@ -85,6 +86,7 @@ With that in mind, I would still be interested in rewatching Hadestown, Beetleju
 - The pink vests in 'turn it off' were great. I thought that this was a new addition to the 2022 production, but it appears not.
 - Holistically, the set design looked a lot better than I remember it. For example, the mormon boys have these boy bands white t's that they pull out specifically for Man Up and never again. Compare this to something like hades town, where the ensemble only has two constumes and the rest of the cast (bar Persephone) basically wears the some costume for the entire musical. Did they have the monster + darth vader costumes? Probably and I forgot about it.
 - There's a guitar solo in "Spooky Mormon Hell Dream" that I was looking forward which I somehow missed! I saw them pass the guitar to the devil so it's not like I didn't notice it, but I just didn't hear it :(
+- Our seats were the second orchestra row. The downside was that since it was so close to the stage, it would be really bright which broken the immersion of the theater. I could see all the people around me.
 
 ### 1. Wicked
 - Watched with Aaron, Jenny, Isak, Lauren on Broadway, 06/19
