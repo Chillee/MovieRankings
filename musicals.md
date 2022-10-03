@@ -38,6 +38,20 @@ My rating for a musical changes over the weeks after seeing the musical live. Si
 _feel_ like an animated cartoon. All the goofy actions and synced up with the cartoon sfx. Beetlejuice does a lot of slight of hand tricks which are a nice touch. I haven't seen a magic show live (mostly videos) and those kind of things happen so fast that unless you know what you're looking for, it looks super legit. The lights and projections are awesome. All the props that come from the pit are crazy. The giant snake is surprisingly plot-relevant. The ensemble has so many different costumes. 
 - Until listening to the recording, I didn't get that the funeral we saw at the beginning was the mother. I thought it was Beetlejuice lol. Similarly, I only 'got' the theme of "being invisible" from the recording.
 
+### 1. Phantom of the Opera
+- Watched with Katie on 09/27/22 (West End)
+- This was the third music we watched over the weekend. I find myself enjoying Drama/Tragedy a lot more than Comedy. I look forward to seeing this show again (unlike &Juliet, Book of Mormon etc.)
+- I always had the perception that PotO was a scuffed musical because the tickets were so cheap. Now I see why this is such a classic.
+- I watched about 40 minutes of the pro shot a few months earlier but didn't enjoy it that much so I stopped watching midway. That said, I was super excited to see it live and I knew that I would really enjoy it.
+- The opening sequence is probably my favorite of all musicals. It's just so hype to see the chandellier pop and rise up. 
+- There were several songs that were hard to understand. In general, any song that had more than one person singing at once (even the trio between Christine, Christian and Phantom). Most of the opera sung parts were also hard to understand.
+- There's quite a few plot details which I still don't understand. Why is Phantom friends with the dance instructor? Why does she tell the truth about who the Phantom is? Why does Christine's father describe an Angel of Music? Is it just suppose to be a coincidence that the Phantom falls in love with a girl who is particularly suseptible to being manipulated? Or is there some kind of past relationship between Christine's father and the Phantom? I also had a hard time picturing the actual theater.. How is there a lake in the theater? Maybe this is actually the sewers? For a movie, these details would be more important to me, but I'm willing to let them pass since it's a musical. I'm guessing it's explained in the original source material.
+- I was on the edge of my seat for the last third of the musical. Part of this was because I didn't know how things would end. 
+- The titular song is a banger. I'm sure I'll appreciate the other songs more as I listen to the album. I'll note that the youtube video for PotO was matched the live version pretty closely.
+- The props were super cool. I liked Phantom's fire gun. His mysterious disappearance at the end was a nice surprise.
+- I really enjoyed seeing "Think of Me" where we transition from audition to performance. The transition feels like a scene out of a movie so it's cool to see it pulled off live.
+- For the first time, we waited at the stage door afterwards to see the cast leave. Notably, we saw Phantom and Christine's friend leave. It was interesting seeing them in normal clothes (Phantom was a biker). Christine's friend was very attractive.
+
 ### 1. Hadestown
 - Watched with Horace, Qian and Katie at the Orpheum Theatre on 06/11/22
 - This preceded a musical dry spell of a few months. I absolutely LOVED the opening act. What a mood-setter! I was smiling from ear to ear because I knew I was in for a treat.
@@ -50,6 +64,16 @@ _feel_ like an animated cartoon. All the goofy actions and synced up with the ca
 - The tall fate with the tamboruine was a great cast. She looked exactly like how I'd expect a fate to look.
 - I liked the plot point that Hades is moved by Orpheus' song, but he has trouble deciding how to proceed. It appears that this part deviates from the original myth where Persephone decides they can go. 
 - We had front row seats, but it's clear that a few rows back would have been much better. We were getting seriously fogged up and subsequently blinded by the lights. In "Wait for Me", we were looking up at the lamps so we somewhat missed out on the choreography. This show would have been better to see on the mezz.
+
+### 1. Les Miserables
+- Watched With Katie 09/22 (West End)
+- We watched the movie version over a year ago and I was super excited to see it live (just like with JCS). Overall, I enjoyed the act 1 much more than act 2. If act 2 was as good as act 1, then this would probably be my favorite musical. Almost all the good songs are in the first act.
+- It's interesting that `I Dreamed a Dream` happens so earlier on. In my memory of the movie, it was one of the major songs, but it's actually the third song in the musical.
+- Cosett's child actor was good but didn't have a much part. The boy child actor had a larger role but wasn't as good.
+- I couldn't hear the lyrics of Master of the House that well.
+- I really didn't like the barricade parts. This is one of those scenes that's much harder to do on a stage than in a movie. We see the defending side of the barricade and the French army is left to our imagination. The gunshots are just stage lights and a bunch of loud noises. This was the biggest detractor of the musical. 
+- I remember Javert's suicide differently because I listen to the rendition of `Stars` a lot and I think the concert bundles the song with the suicide even though they happen far apart. I wasn't sure how we would see it live but I loved it! He is on a short railing but gets pulled up. Then the lights make it look like he's falling. Really well done!
+- Unlike the movie, the opening number doesn't really give a sense for how strong JVJ is. It's then referenced later on when he lifts the wheelbarrow which is a bit weird.
 
 ### 1. Book of Mormon
 - Watched with Jenny on Broadway, 06/17 (my first live musical!)
@@ -75,6 +99,30 @@ _feel_ like an animated cartoon. All the goofy actions and synced up with the ca
 
 ### 1. Waitress
 - Watched with Katie on Broadway
+
+### 1. Moulin Rogue
+- Watched with Horace, Qian, Katie 10/02/22 (BroadwaySF)
+- This was the worst opening that I've ever watched. Things got a lot better and I find the second act to be much better than the first. In general, any number which had a chorus singing was loud and a bit obnoxious. I had no idea what was going on in the opening number and it set my expectations for the musical very low. I really did not enjoy any song that didn't move the plot forward. 
+- Once we started learning about the plot and the main characters, I found myself enjoying things a lot more. 
+- There were some interesting lighting effects. Of note, I've never seen the one where they alternate between lights from the left and right so you see one side and then the shadow. That was pretty cool.
+- I yearned for hearing a cover of Kanye in Diamonds of Forever but instead we got the original song. I was just waiting for the beat to drop. That would have been a highlight.
+- The medleys were an interesting twist on the jukebox musical, but it was hard for me to shake off the nostalgia of 2010's youtube pop song medley's. The felt a bit dated to me.
+- Some lyrics feel super out of place. For example, "like the fourth of july" in firework when we're in France. Maybe this takes place after the American revolution but it's still kinda weird.
+- The male lead was very very good, broadway material. The female lead... I couldn't tell how good she was but her mic was set up so she would peak on the loud parts and that ruined her songs for me. Particularly when the two of them have duets and her voice overshadows the guy.
+- The audience laughed whenever a familiar tune started (which was often). I found this off putting because it just wasn't that funny to me. 
+- Roxanne was my favorite song because of the beautiful violin solo. I really wish they incorporate some melodies from Carmen Fantasy... it would just fit so perfectly. We see on stage a women in a red dress. The themes fit with Carmen and we are listening to a violin solo. Not to mention, they include Carmen in other parts of the musical. Oh well... I loved listening to it.
+- I got much more into the music in the second act. I think it helped to have my expectations set of what kind of music we would be hearing.
+- I quite liked the plot (which is rare for me to say). Why are there so many stories of men falling in love with prostitutes?
+
+### 1. &Juliet
+- Watched with Katie 09/22 (West End)
+- Besides the Mamma Mia movie, this was my first jukebox musical. I think the musical itself is entertaining, but the reason I enjoy musicals is listening to the soundtrack afterwards. When I see a cover of a pop song, it's hard for to not imagine 2010's youtube where most of the musicals were cover artists. Besides that, comedies just don't have the same lasting power as dramas. I want to see Hadestown again and again. I'm fine with seeing &Juliet once in my live. I'm not interested in another performers rendition of pop songs. 
+- I find that jukebox musicals are a bit cheesy since they have to incorporate some weird lyrics that are part of the original song. They are played off as jokes. Or when two characters have a conversation in song that originally was written for one singer.
+- All that said, I really liked the cover of Blow. That's one of the only songs I remember. 
+- This feels like the first "modern" musical that I've watched. The characters are woke, there's non-binary characters that have legit storylines. It's very much focused on female empowerment and rewriting history. Feels like it was writing for my generation. I knew every single song (by lyric).
+- I enjoyed Anne's character and performance the most. She reminds me of Persephone. The other characters were all decent but not particularly memorable.
+- The production was on the level of Beetlejuice, except a completely different aesthetic. I enjoyed all the lighting and vfx.
+- Romeo coming back in act 2 was pretty funny. 
 
 ### 1. Book of Mormon (rewatch)
 - Watched with Katie at the Eugene O'neill Theatre on 07/3/22
