@@ -35,7 +35,7 @@
 
 4/5 (Willing to rewatch if I'm in the mood)
 -----------------------------
-15. **Bladerunner 2049**
+16. **Bladerunner 2049**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
 1. **Three Billboards Outside Ebbing, Missouri**
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
@@ -95,7 +95,7 @@
 
 3/5 (Reluctant to rewatch)
 -----------------------------------
-49. **Chinatown**
+73. **Chinatown**
 1. **First Man**
 1. **21 Jump Street**
 1. **The Truman Show**
@@ -132,7 +132,7 @@
 
 2/5 (Don't see the point of rewatching)
 --------------------------------
-74. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
+107. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Clue**: So so so much worse than Knives Out. It's like Knives Out, but without any of the likable characters, or any of the interesting plot twists. I did find the "3 endings" thing interesting though, but I wonder if that hurt the quality of the plot twists.
 1. **Tucker and Dale vs. Evil**: Like Zombieland, a "satirical but not really" horror movie. The overwhelming emotion I felt in this movie was disbelief for how stupid the kids are. I get that's the point of the movie, but wow, those kids were dumb. Like, really dumb.
 1. **Contagion**: This movie felt a bit too clinical for me. Feels like a CDC propaganda film (vaccines, anti-pseudoscience, etc.). I believe that the movie is extremely scientifically accurate - I just don't think it makes for extremely compelling cinema. Not that I didn't enjoy the movie, or that it didn't have drama. I'm just unconvinced that this kind of "drama by collective" can create a truly phenomenal movie.
@@ -146,7 +146,7 @@
 
 1/5 (Active distaste)
 -------------------
-83. **There Will Be Blood (unfinished)**: I watched the first half, and I wasn't very engaged. I've heard some people mention that this movie is "80% drudgery made up with some phenomenal moments", so I want to finish this film at some point.
+118. **There Will Be Blood (unfinished)**: I watched the first half, and I wasn't very engaged. I've heard some people mention that this movie is "80% drudgery made up with some phenomenal moments", so I want to finish this film at some point.
 1. **The Imitation Game**: The worst film I've watched in a long time. I just didn't care for any of the characters. The fact that this movie drastically departs from Turing's real story, pitting him against the government, the coworkers, a Russian spy, or basically anything that will characterize Turing even more as an isolated tortured genius doesn't help. I tend to have a soft spot for movies like this, but I found this movie unbelievably boring.
 1. **Under The Skin (unfinished)**: I have found the limits of how much "art house" I can handle in a movie.
 1. **Game of Thrones Season 8**: I will make an exception from movies for this one.
