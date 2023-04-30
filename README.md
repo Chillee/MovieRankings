@@ -41,6 +41,7 @@
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
 1. **Interstellar**: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina"(much worse than the beginning) that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list. Also, this is [very funny](https://www.youtube.com/watch?v=1Zn958rN-H4)
 1. **Too Big To Fail/The Big Short/Margin Call**: The 2008 financial collapse trilogy. Too Big To Fail tells it from the government's perspective, The Big Short tells it from the investors' perspective, and Margin Call tells it from the banks' perspective.
+1. **Memories of Murder**: I find it a bit unfortunate that I didn't watch this before the murderer (in real life) was caught - the intended effect of making the audience wonder if the murderer is sitting behind thm in the theater doesn't hit quite as hard. Regardless, the depiction of obsession, questioning everything you believe in, and overall failure ends up still being very compelling. The scene where the murderer chooses between the protagonist's wife and the high schooler on a whim was quite chilling as well.
 1. **Knives Out**: A very accessible whodunnit that I enjoyed. It's nice to watch a relatively straightforward feel good movie - looking forward to Knives Out 2.
 1. **Synecdoche NY**: Impossible to give this movie a legitimate rating. In some sense, I feel like I got "Eulered" into placing this movie so high. But, there were enough stand out quotes/moment (like the ending) that struck me that I do feel this movie deserves this placement. Might rewatch after watching YMS's analysis - too much of the movie confuses me to just watch the movie again. Wouldn't surprise me if the director was a DFW fan.
 1. **Her**
@@ -73,6 +74,7 @@
 1. **Uncut Gems**: Probably one of the most stressful movies I've watched.
 1. **Taxi Driver**
 1. **Scott Pilgrim Vs The World**
+1. **Tar**
 1. **Les Misérables**: I don't know if my rating of this movie is unfairly high, as this movie was my first exposure to Les Mis the musical, and I listened to the soundtrack a bunch afterwards. :think:
 1. **Fantastic Mr. Fox**: A very interesting animation style. Not nearly as cute as Paddington, however - I also didn't particularly care for the storyline involving the kid.
 1. **Paddington 1**: Not nearly as good as Paddington 2 (which is essentially perfection), but still a pretty great kids movie.
@@ -101,6 +103,7 @@
 1. **The Truman Show**
 1. **In the Heights**
 1. **Spider Man: Far From Home**
+1. **Fabelmans**: Meh, large parts of this movie I just could not take seriously (particularly the mother). I also don't understand how the mother is meant to be sympathetic at all - she cheats on the husband with his best friend, reluctantly moves away with her family, and then breaks down and says that she has to leave her husband and kids to be with the guy she cheated with?? The best scene by a mile was the ending scene, which was apparently fairly true to life. Last shot was also pretty cute.
 1. **Tenet**: Perhaps I just don't understand this movie - specifically, the fundamentals of how the physics works. How does a forward person fight against an inverted person? Like, let's say the forward and inverted people try to push against each other. Is that possible? How does it work?
 1. **Do the Right Thing**
 1. **Dr. Strangelove**
