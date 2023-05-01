@@ -120,6 +120,7 @@
 1. **The King's Speech**: Fairly solid, but ultimately forgettable. It's criminal that this won Best Picture over The Social Network.
 1. **Coherence**: Less mind-bending than Primer, but a more likable character arc. Ending seemed like a bit of a cheap twist.
 1. **No Country For Old Men**: Disappointed with this film. I thought I would really love this film, but left underwhelmed. There's a couple of really great scenes, notably the gas station one, but the overall tone of the movie was too nihilistic for me to appreciate.
+1. **Air**
 1. **American Psycho**: Watched it for the memes, found the movie more disturbing than I thought it'd be. Christian Bale really carries the movie for me - I can't really find the core themes interesting enough to find the movie to be phenomenal. My favorite scenes from the movies are the scenes I watched before the movie that convinced me to watch the movie in the first place. Huey Lewis and the News, as well as the cardstock scene.
 1. **Sing Street**: A fairly entertaining movie. However, I don't think I watched this movie at the right stage of my life. I think there are times where I would have absolutely loved this movie and rated it a 4 or 5.
 1. **This is Spinal Tap**: Some funny scenes - just didn't stand out that much to me.
