@@ -25,10 +25,11 @@
 1. **Children of Men**
 1. **Drive**
 1. **Paddington 2**: Perhaps the most heartwarming and wholesome movie I've ever seen. It's kind of like a Wes Anderson film for kids. You could call it "The Dark Knight" of children's films.
+1. **Across the Spiderverse**: Amazing film. Animation was leagues better than the first film, which was already a revolution in animation. I'm a big fan of Lord and Miller (21 jump street, lego movie, mitchell vs. the machines), and they haven't let me down yet. OTOH, I do feel a little bit guilty enjoying the movie considering what's come out about Lord and Miller's treatment of animators, but well.... considering the quality of the movie, that's a sacrifice I'm willing to make :) 
 1. **The Fighter**
 1. **The Good the Bad and the Ugly (rewatch)**: To some extent, this movie is largely carried by the soundtrack. It's not carried like a musical is, but the best moment by a mile is The Trio. The rest of the movie is fairly enjoyable, with plenty of standout comedic moments (particularly the whole dynamic between the Good and the Ugly). However, if it weren't for the musical moments, this movie wouldn't find its way into S tier.
-1. **In Bruges**
 1. **Memento**: My enjoyment of the movie went like this. "The premise is interesting, but I don't think it'll stand up to a whole movie. Hence why I haven't watched this movie yet" -> "Huh, I guess the premise leads to some interesting narrative moments + simulates the life of the protagonist. Knowing the answer to a whodunnit can be played around with interesting ways" -> "The premise leads to some interesting moments, but over the course of the whole movie, it ruins the suspense too much and makes the movie less enjoyable" -> "Wait......." -> "Holy shit". The movie gives me a whole new level of appreciation for a working memory. Definitely Nolan's purest/least commercialized movie. I once heard someone say that Nolan movies have great ideas but are marred by his desire to make commercially viable films. Memento is the exception.
+1. **In Bruges**
 1. **Gone Girl**: A very romantic love story :)
 1. **Nightcrawler**: It's criminal that Jake Gyllenhaal didn't get nominated as best actor for this film. Overall, the film dives into a very interesting niche of media that I don't really think about much. It's best seen as a darkly satirical take on a classic American success story seen through the eyes of a twisted optimist.
 
@@ -108,6 +109,7 @@
 1. **Fabelmans**: Meh, large parts of this movie I just could not take seriously (particularly the mother). I also don't understand how the mother is meant to be sympathetic at all - she cheats on the husband with his best friend, reluctantly moves away with her family, and then breaks down and says that she has to leave her husband and kids to be with the guy she cheated with?? The best scene by a mile was the ending scene, which was apparently fairly true to life. Last shot was also pretty cute.
 1. **Tenet**: Perhaps I just don't understand this movie - specifically, the fundamentals of how the physics works. How does a forward person fight against an inverted person? Like, let's say the forward and inverted people try to push against each other. Is that possible? How does it work?
 1. **Do the Right Thing**
+1. **The Super Mario Bros Movie**: More or less what I expected. A competently animated movie with plenty of callbacks + a barebone story. I'm not complaining though - I'll probably watch every single Nintendo animated movie that comes out.
 1. **Dr. Strangelove**
 1. **Moonlight**
 1. **V for Vendetta**: Perhaps modern neckbeard culture and the hacker group Anonymous have made me too cynical of the imagery in this movie, but I found V to be somewhat ... cringy. He just felt a lot like a neckbeard. He loves swords, he says edgy things, he has a "iamverysmart" demeanor, and just reminds me of m'lady. My favorite scene, by far, was the scene with the dominoes. I guess I just love montages in general.
