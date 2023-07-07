@@ -14,7 +14,7 @@
 
 
 ## Horace
-5/5 (Willing to rewatch at any time)
+5/5 (One of my favorite movies ever)
 ----------------
 1. **Parasite**
 1. **Everything Everywhere All at Once**
@@ -34,7 +34,7 @@
 1. **Nightcrawler**: It's criminal that Jake Gyllenhaal didn't get nominated as best actor for this film. Overall, the film dives into a very interesting niche of media that I don't really think about much. It's best seen as a darkly satirical take on a classic American success story seen through the eyes of a twisted optimist.
 
 
-4/5 (Willing to rewatch if I'm in the mood)
+4/5 (A very good movie, would recommend)
 -----------------------------
 16. **Bladerunner 2049**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
@@ -67,6 +67,7 @@
 1. **Avengers: Endgame**: Enjoyed this movie a lot more than I thought I would. I don't really consider myself a Marvel "fan" - I find most of the movies adequate, but most of them don't really stand out to me. I didn't even watch Infinity War in theaters. However, I do have a large amount of respect for the Marvel Cinematic Universe. The level of dominance that Marvel has achieved over the last 7 years has been unprecedented, and Marvel movies have been such a cultural force over that span. Thus, I journeyed to watch this movie out of respect for the closing of an era, a pilgrimmage of sorts to the biggest movie moment in my lifespan. As for the movie itself, it banks heavily on cashing in on the emotional capital they've built up over 10 years - not that it's a bad thing. The time travel really highlighted that for me. When they showed the classic NYC Avengers shot, with the camera circling around the main cast, I thought of all the youtube videos I've seen that snippet in - Every Frame a Painting (RIP), Why CGI doesn't Suck, etc. That was great. Captain America picking up Mjolnir was another great moment. Picking up the hammer has been at the core of many great moments throughout Marvel, and that moment got the biggest cheer in my theater. Overall, Game of Thrones has shown me how badly a show can end, and I gained a lot of appreciation that this phase of the Marvel Cinematic Universe ended with a great movie.
 1. **RRR**: Basically a superhero movie, but with a lot more unique shots and action than any blockbuster I've seen in a while. The song at the end featured the girlfriend much more prominently than her role in the movie - we speculated that she was a famous singer of some kind essentially making a cameo.
 1. **Sound of Music**: I actually didn't know that Ariana Grande's 7 Rings interpolated "My Favorite Things". Out of all the "golden era" musicals I've watched so far, I've liked this one the most so far. I came in expecting it to be something like Mary Poppins - just a lighthearted movie about Maria bonding with the children. However, this movie had a couple plot twists that lent it a surprising amount of heart and intrigue.
+1. **Puss in Boots: The Last Wish**: Banger movie.
 1. **Moonrise Kingdom**
 1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent distribution is one of great existential tragedies, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
 1. **City of God**: Nightcrawler if Jake Gylenhaal's character was split into Lil'Z and Rocket.
@@ -98,7 +99,7 @@
 1. **Nice Guys**: Russell Crowe and (especially) Ryan Gosling really make this buddy-cop murder mystery movie. I know Ryan Gosling in particular from his roles in movies like Drive, Blade Runner 2049, or First Man, where he plays the stoic bad-ass. I view his role in this movie as a parody of his roles in those films.
 1. **Free Guy**: Ryan Reynolds doing Ryan Reynolds things, some really funny action sequences, and a lot of gamer bait. I found this movie very enjoyable, although definitely not a flawless movie by any means.
 
-3/5 (Reluctant to rewatch)
+3/5 (Alright movies)
 -----------------------------------
 73. **Chinatown**
 1. **First Man**
@@ -139,7 +140,7 @@
 1. **Forrest Gump**: This might just be a cultural zeitgeist type of thing, but I didn't really connect with the film. None of the cultural events that happen emotionally register with me, and neither does Forrest as a character. He was sympathetic enough of a character and I rooted for him, but not enough to carry the film. Also, really didn't like Jenny in the film. I get that a lot of her manipulative actions stemmed her from her abuse as a child, but just as your parents don't excuse you from all blame, neither does Jenny's terrible past excuse her from taking advantage of Forrest for most of her life. I see why people call this a conservative movie - the army glory, Forrest overcoming his disabilities (although he was blessed with being great at running...), the self made film, the condemnation of Jenny's "alternative" lifestyle, etc. I wouldn't say its conservative - more so "traditional". Whether you consider that an euphemism or not, Forrest Gump seems like a story about the non-talented everyday American who succeeds through hard work and doing what he's told. As I said, might just be the zeitgeist of 90s America, an age where the US turned its attention from the USSR inwards and focused on itself.
 1. **The Super Mario Bros. Movie**: Actually a hilarious title. Reminiscent of the age of "Scary Movie" parody movies.
 
-2/5 (Don't see the point of rewatching)
+2/5 (Meh)
 --------------------------------
 107. **Zombieland**: I think Michael Cera has a monopoly on his archetype in Hollywood (quirky awkward guy). I wonder if some writers write their scripts with him in mind. I can't imagine any other actor giving the same performance in this movie. Overall, another guilty pleasure movie. I enjoyed Tallahassee especially. Not much else to say about this movie. If you enjoy this kind of "satirical but not really" version of a zombie movie, you'll like it.
 1. **Clue**: So so so much worse than Knives Out. It's like Knives Out, but without any of the likable characters, or any of the interesting plot twists. I did find the "3 endings" thing interesting though, but I wonder if that hurt the quality of the plot twists.
