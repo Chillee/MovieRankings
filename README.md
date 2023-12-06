@@ -71,6 +71,7 @@
 1. **Moonrise Kingdom**
 1. **Amadeus**: Excellent character premise, and excellent character development. Unequal talent distribution is one of great existential tragedies, and this movie presents it very well. Unfortunately, the middle of the movie dragged a bit - perhaps if I watched the theatrical cut this wouldn't be a problem.
 1. **City of God**: Nightcrawler if Jake Gylenhaal's character was split into Lil'Z and Rocket.
+1. **Godzilla Minus One**: For the most part, I've viewed the Godzilla films I've seen as pure "popcorn" fare - you go to the movies to watch two really big monsters punch each other, and everything else isn't particularly important. This movies changes that in that I actually want the human characters to *live* as opposed to die.
 1. **Jackie Brown**: The most un-Tarantino movie of the Tarantino movies. I've heard some people call this his most mature film, and I'd probably agree. It definitely still has some classic Tarantino-isms, like the soundtrack, but the dialogue is somewhat uncharacteristic of Tarantino (perhaps because it's a novel adaptation). Maybe I'm just immature, but like his other films more.
 1. **Lawrence of Arabia**: We spent 10 minutes at the beginning of the movie trying to debug why there was no video (just a black screen). Old movies were truly built different.
 1. **Cloud Atlas**
