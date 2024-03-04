@@ -32,12 +32,14 @@
 1. **In Bruges**
 1. **Gone Girl**: A very romantic love story :)
 1. **Nightcrawler**: It's criminal that Jake Gyllenhaal didn't get nominated as best actor for this film. Overall, the film dives into a very interesting niche of media that I don't really think about much. It's best seen as a darkly satirical take on a classic American success story seen through the eyes of a twisted optimist.
+1. **Godzilla Minus One**
 
 
 4/5 (A very good movie, would recommend)
 -----------------------------
 16. **Bladerunner 2049**
 1. **Eternal Sunshine of the Spotted Mind**: Much like Synecdoche NY, this is very close to how much "art house" movie I can handle. Unlike Synecdoche NY, this has a much more understandable plot (compared to Synecdoche NY). I wasn't too interested in the B-plot of this movie, but the examination of choosing to lose memories and its true costs is brilliant.
+1. **Dune 2**
 1. **Three Billboards Outside Ebbing, Missouri**
 1. **The Thing**: The best horror movie I've ever watched. Realistically smart characters faced with the worst of horrors and trying their best to cope. [Watts's retelling](http://clarkesworldmagazine.com/watts_01_10/) from the monster's side adds a interesting dimension to the film.
 1. **Interstellar**: Classic example of the "high highs, low lows" archetype. The tsunami scene (where the music represented the passing of time on Earth), the whole Mann arc (absurdly relatable), and the heel turn were highs that very few movies reach. However, the slow first third of the movie and the unbelievable "Deus Ex Machina"(much worse than the beginning) that was the ending almost ruined the movie for me. As a principle, I like to reward ambitious movies - hence why Interstellar still finds its way high on my list. Also, this is [very funny](https://www.youtube.com/watch?v=1Zn958rN-H4)
